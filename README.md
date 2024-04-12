@@ -1,295 +1,158 @@
-Model Man: From Integrity to Legacy by Larry Stockstill
+# REFERENCIAS
 
-A Nation Desperate for Models
-But in order to offer ourselves as a model for you, so that you would follow our example.  – 2 Thessalonians 3:9
-America is in trouble. Our spiritual leadership seems to have lost its moorings.  America has gained in affluence but has lost its influence.
+- [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
+- [Model Man: From Integrity to Legacy by Larry Stockstill](https://www.outofthisworldleadership.com/blog-posts/model-man-from-integrity-to-legacy-by-larry-stockstill/)
 
-Becoming a model man is the focus of this book as expressed in 2 Thessalonians 3:9.
+Homem Modelo: Da Integridade ao Legado por Larry Stockstill
 
-To be a model is to make an impression.  Impressions can be good or bad. Paul sought to be a model man, one whose way of life, integrity, purity, pace, purpose, and legacy could shake a godless Roman empire.  Paul wrote in 1 Corinthians 4:16, “Therefore, I urge you, imitate me.”  He said again in 1 Corinthians 11:1, “Imitate me, just as I also imitate Christ.”
+Uma Nação Desesperada por Modelos
+Mas para nos oferecermos como modelo para vocês, para que vocês sigam nosso exemplo. – 2 Tessalonicenses 3:9
+A América está em apuros. Nossa liderança espiritual parece ter perdido suas bases. A América ganhou em riqueza mas perdeu sua influência.
 
-Today, more than ever, we need model men who stand out from the common run of humanity as men of godliness and integrity.  Model men:
+Tornar-se um homem modelo é o foco deste livro, conforme expresso em 2 Tessalonicenses 3:9.
 
-Honor their wives.
-Pay their bills and keep their word.
-Take responsibility.
-Tell the truth.
-Function as examples for the next generation.
-Live it before they say it.
-Model it before they demand it.
-Section I: Character
-Courageous Integrity
-Let integrity and uprightness preserve me.  – Psalm 25:21
-Simply put, integrity is the courage to do the right thing.  It’s living a life of uprightness in the face of a corrupt world.  A real man is defined by his integrity.
+Ser um modelo é causar uma impressão. As impressões podem ser boas ou ruins. Paulo procurou ser um homem modelo, cujo modo de vida, integridade, pureza, ritmo, propósito e legado pudessem abalar um império romano ímpio. Paulo escreveu em 1 Coríntios 4:16, "Portanto, eu vos exorto, imitai-me." Ele disse novamente em 1 Coríntios 11:1, "Imitai-me, assim como eu também imito a Cristo."
 
+Hoje, mais do que nunca, precisamos de homens modelo que se destaquem do comum da humanidade como homens de piedade e integridade. Homens modelo:
 
-Consider the words of 1 Samuel 3:19 when the Lord was with Samuel and “let none of his words fall to the ground.”  When you make a commitment to someone, it becomes the most important thing in your life to honor that commitment.  Integrity is the making of promises and the keeping of those promises.
+Honram suas esposas.
+Pagam suas contas e mantêm sua palavra.
+Assumem responsabilidade.
+Dizem a verdade.
+Funcionam como exemplos para a próxima geração.
+Vivem antes de falar.
+Modelam antes de exigir.
+Seção I: Caráter
+Integridade Corajosa
+Que a integridade e a retidão me preservem. – Salmo 25:21
+Simplificando, integridade é a coragem de fazer a coisa certa. É viver uma vida de retidão diante de um mundo corrupto. Um homem de verdade é definido pela sua integridade.
 
-Telling the Truth
-Integrity is the foundation of the model man, and truth is the foundation of integrity.  Being real, authentic, genuine, and transparent builds integrity.
 
-People are very forgiving when you make a mistake but tend to lose confidence when they feel you are not truthful and genuine.
+Considere as palavras de 1 Samuel 3:19, quando o Senhor estava com Samuel e "nenhuma de suas palavras caiu ao chão." Quando você faz um compromisso com alguém, torna-se a coisa mais importante da sua vida honrar esse compromisso. Integridade é fazer promessas e cumpri-las.
 
-Comedian George Carlin recently joked, “The real reason that we can’t have the Ten Commandments in a courthouse: You cannot post ‘Thou shalt not steal,’ ‘Thou shalt not commit adultery,’ and ‘Thou shalt not lie’ in a building full of lawyers, judges, and politicians. It creates a hostile work environment!” He got a big laugh, but it’s really sad because it’s true. Studies have shown that a high percentage of people now believe that lying is a normal part of life.
+Dizer a Verdade
+Integridade é a base do homem modelo, e a verdade é o fundamento da integridade. Ser real, autêntico, genuíno e transparente constrói integridade.
 
-On the job, face up to your failures and weaknesses without blaming others or manipulating to save face. “I blew that one.”  Your boss thinks, “Finally, someone I can trust! I’m going to find a way to work him into a higher position of responsibility.”
+As pessoas são muito compreensivas quando você comete um erro, mas tendem a perder a confiança quando sentem que você não é verdadeiro e genuíno.
 
-A man who is secure in who he is does not need to lie, even when he makes mistakes. Insecurity breeds lies.
+O comediante George Carlin brincou recentemente: “A verdadeira razão pela qual não podemos ter os Dez Mandamentos em um tribunal: Você não pode postar 'Não furtarás', 'Não cometerás adultério' e 'Não mentirás' em um prédio cheio de advogados, juízes e políticos. Isso cria um ambiente de trabalho hostil!” Ele provocou muitas risadas, mas é realmente triste porque é verdade. Estudos mostraram que uma alta porcentagem de pessoas agora acredita que mentir é uma parte normal da vida.
 
-Paying Your Bills
-Your finances tell people more about your integrity than almost any other indicator. If you handle money responsibly, people will respect and trust you more.
+No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. "Eu estraguei tudo." Seu chefe pensa: “Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade.”
 
-People in your community know you by your finances.  Paying your bills on time is a big deal.  The longer you do that, the higher your credit score and the higher the community’s opinion of you.
+Um homem que é seguro de quem ele é não precisa mentir, mesmo quando comete erros. A insegurança gera mentiras.
 
-Romans 13:6-8 says, “This is also why you pay taxes, for the authorities are God’s servants, who give their full time to governing. Give to everyone what you owe them: If you owe taxes, pay taxes; if revenue, then revenue; if respect, then respect; if honor, then honor. Let no debt remain outstanding, except the continuing debt to love one another, for whoever loves others has fulfilled the law.”
+Pagar Suas Contas
+Suas finanças dizem mais sobre sua integridade do que quase qualquer outro indicador. Se você gerencia o dinheiro de forma responsável, as pessoas vão respeitar e confiar mais em você.
 
-None of us wants to overpay the government, but our integrity demands that we fairly and promptly pay the government. The same principle holds true with God and His tithe.  If I can’t have integrity with God’s tenth, how will I have integrity with man’s obligations?
+As pessoas na sua comunidade o conhecem por suas finanças. Pagar suas contas em dia é muito importante. Quanto mais tempo você fizer isso, maior será sua pontuação de crédito e maior será a opinião da comunidade sobre você.
 
-Daniel was so meticulous in his handling of finances that his enemies “could find no ground for complaint or any fault, because he was faithful, and no error or fault was found in him” (Daniel 6:4).
+Romanos 13:6-8 diz: “Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei.”
 
-The War on Sexual Purity
+Nenhum de nós quer pagar mais ao governo do que deve, mas nossa integridade exige que paguemos de forma justa e pontual ao governo. O mesmo princípio vale para Deus e Seu dízimo. Se não posso ter integridade com o dízimo de Deus, como terei integridade com as obrigações do homem?
 
-A recent study revealed that 57 percent of married men, Christians included, admitted to being unfaithful, and 74 percent said they would have an affair if they would never get caught! The statistics are staggering. Another study, this one by Nielson, showed that over 50 percent of Christian men say they are addicted to porn—not just viewing but addicted! Fifty-one percent of pastors admit that pornography is a personal temptation, and 40 percent say they are struggling with it. One third of those 40 percent say they have looked at porn in the last month.
+Daniel era tão meticuloso em seu manejo das finanças que seus inimigos “não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele” (Daniel 6:4).
 
-C.S. Lewis said in reference to sexuality and the flesh, “For ‘nature’ (in the sense of natural desire) will have to be controlled anyway, unless you are going to ruin your whole life.”  Men are literally ruining their whole lives because of a lack of self-control.
+A Guerra pela Pureza Sexual
 
-If you can keep a few standards for your whole lifetime, your chances of remaining sexually faithful to your wife are almost 100 percent.  Those standards stand like walls around your mind and heart, protecting you from the sexual attacks that are sure to come.
+Um estudo recente revelou que 57% dos homens casados, incluindo cristãos, admitiram ter sido infiéis, e 74% disseram que teriam um caso se nunca fossem pegos! As estatísticas são impressionantes. Outro estudo, este realizado pela Nielsen, mostrou que mais de 50% dos homens cristãos dizem ser viciados em pornografia — não apenas em visualização, mas viciados! Cinquenta e um por cento dos pastores admitem que a pornografia é uma tentação pessoal, e 40% dizem que estão lutando contra isso. Um terço desses 40% diz que viu pornografia no último mês.
 
-Satan’s plan is to “steal, kill, and destroy” (John 10:10).  He even turns simple curiosity into a catastrophe.
+C.S. Lewis disse em referência à sexualidade e à carne, “Pois a ‘natureza’ (no sentido de desejo natural) terá que ser controlada de qualquer forma, a menos que você vá arruinar toda a sua vida.” Homens estão literalmente arruinando suas vidas inteiras por falta de autocontrole.
 
-Personal Guidelines
-You must have personal guidelines set up in order to remain sexually pure.
+Se você puder manter alguns padrões por toda a sua vida, suas chances de permanecer sexualmente fiel à sua esposa são quase de 100%. Esses padrões agem como muros ao redor de sua mente e coração, protegendo-o dos ataques sexuais que certamente virão.
 
-1. Accountability
-Someone once said, “We all do better when we are watched.”  Accountability simply means that we are voluntarily putting ourselves in a position where others can watch over our souls. Jesus sent His team out two by two for a reason (Luke 10:1).
+O plano de Satanás é “roubar, matar e destruir” (João 10:10). Ele até transforma uma simples curiosidade em uma catástrofe.
 
-Filter the internet.  Control your cable.  Monitor your mail.  Watch your workplace.
+Diretrizes Pessoais
+Você deve estabelecer diretrizes pessoais para permanecer sexualmente puro.
 
-2. Compatibility
-If your marriage relationship is deep and intimate, you will have almost zero desire for another woman. Maintain a healthy sex life.  Reconnect romantically.  Guard your wife.
+1. Responsabilidade
+Alguém disse uma vez: “Todos nós fazemos melhor quando estamos sendo observados.” Responsabilidade simplesmente significa que estamos voluntariamente nos colocando em uma posição onde outros podem cuidar de nossas almas. Jesus enviou Sua equipe dois a dois por uma razão (Lucas 10:1).
 
-3. Reliability
-Use a system of reliable, consistent relationships and activities that you never miss.  Without these systems in place, you become inconsistent and more vulnerable to mood swings, holiday temptations, and low points where your weaknesses could take hold of your intentions.
+Filtre a internet. Controle sua TV a cabo. Monitore suas correspondências. Observe seu local de trabalho.
 
-Ecclesiastes 4:9-10 says, “Two are better than one, because they have a good return for their labor.  If either of them falls down, one can help the other up.  But pity anyone who falls   and has no one to help them up.”
+2. Compatibilidade
+Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher. Mantenha uma vida sexual saudável. Reconecte-se romanticamente. Proteja sua esposa.
 
-John Wesley had 60,000 Methodist believers in weekly small groups in England, held together by a simple question each member answered in turn: “What temptation did you face this week, and how did you overcome it?”
+3. Confiabilidade
+Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações em feriados e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
 
+Eclesiastes 4:9-10 diz: “Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Pois se caírem, um levantará o seu companheiro; mas ai do que estiver só; pois, caindo, não haverá outro que o levante.”
 
-If a man—any man—will commit to consistency in a daily Bible reading plan, his spiritual maturity will go through the roof and his vulnerability to temptation will become insignificant.
+John Wesley tinha 60.000 crentes metodistas em grupos pequenos semanais na Inglaterra, unidos por uma simples pergunta que cada membro respondia por sua vez: “Que tentação você enfrentou esta semana e como você a superou?”
 
-All Eyes are On You
-But set the believers an example in speech, in conduct, in love, in faith, in purity.  – 1 Timothy 4:12
-Integrity is what we are like before God when nobody is looking. Purity is having strong boundaries and walls around us guarding our hearts from sexual immorality. Example is how we are perceived by others in our circle of influence. Like a three-legged stool, if one leg is missing, our character cannot stand, nor will hold up under pressure. It takes all three legs to be balanced and strong.
+Se um homem — qualquer homem — se comprometer com a consistência em um plano diário de leitura da Bíblia, sua maturidade espiritual irá às alturas e sua vulnerabilidade à tentação se tornará insignificante.
 
-In order to bring our nation back to righteousness, it must be filled with men who accept the responsibility of being looked up to wherever they are in life.  They are not afraid of close inspection.
+Todos os Olhos Estão em Você
+Mas seja um exemplo para os fiéis em palavra, no procedimento, no amor, na fé, na pureza. – 1 Timóteo 4:12
+Integridade é como somos perante Deus quando ninguém está olhando. Pureza é ter fortes limites e muros ao nosso redor protegendo nossos corações da imoralidade sexual. Exemplo é como somos percebidos por outros em nosso círculo de influência. Como um banco de três pernas, se uma perna está faltando, nosso caráter não pode ficar de pé, nem suportar a pressão. É preciso ter todas as três pernas para ser equilibrado e forte.
 
-Paul challenges us, “Join together in following my example, brothers and sisters, and just as you have us as a model, keep your eyes on those who live as we do” (Philippians 3:17) and “Don’t let anyone look down on you because you are young, but set an example for the believers in speech, in conduct, in love, in faith and in purity” (1 Timothy 4:12).
+Para trazer nossa nação de volta à retidão, ela deve estar cheia de homens que aceitam a responsabilidade de serem admirados onde quer que estejam na vida. Eles não têm medo de inspeções próximas.
 
-Order teaches you how to be a great example for the Lord in every phase of your life.  Regulations, rules, and policies maintain order in law, business, traffic, finance, marriage, education, athletics, and practically every area of life.  Something in me wants to discard these policies.  I want to disregard them to show my independence.  This defiant, rebellious attitude, if I give in to it, will destroy my example. It’s not just about following rules.  It’s about respecting the order that promotes freedom within set boundaries.
+Paulo nos desafia: “Irmãos, sede imitadores meus e observai os que assim se comportam segundo o modelo
 
-Our Spouse
-Keep in mind that the family is God’s model of the kingdom of God.  He established a divine order in 1 Corinthians 11:3, “But I want you to realize that the head of every man is Christ, and the head of the woman is man, and the head of Christ is God.”
+ que tendes em nós” (Filipenses 3:17) e “Ninguém despreze a tua mocidade; mas sê o exemplo dos fiéis, na palavra, no procedimento, no amor, na fé, na pureza” (1 Timóteo 4:12).
 
-The husband should be the provider, priest, and protector of his family.  His love for them causes him to put them ahead of himself, his ego, his narcissistic self-interest, and his hobbies.  He lives for them. The husband’s model is Christ, as noted in Ephesians 5:25, “Husbands, love your wives, just as Christ loved the church and gave himself up for her.”
+A ordem ensina como ser um grande exemplo para o Senhor em todas as fases da vida. Regulamentos, regras e políticas mantêm a ordem na lei, nos negócios, no trânsito, nas finanças, no casamento, na educação, no esporte e praticamente em todas as áreas da vida. Algo em mim quer descartar essas políticas. Quero desconsiderá-las para mostrar minha independência. Essa atitude desafiadora e rebelde, se eu ceder a ela, destruirá meu exemplo. Não se trata apenas de seguir regras. Trata-se de respeitar a ordem que promove a liberdade dentro de limites estabelecidos.
 
-A loving, faithful lifestyle with your favorite person on earth that demonstrates to the whole community what it means to serve, forgive, and give yourself to another person.
+Nosso Cônjuge
+Lembre-se de que a família é o modelo do reino de Deus. Ele estabeleceu uma ordem divina em 1 Coríntios 11:3, “Quero, porém, que saibam que Cristo é o cabeça de todo homem, e o homem é o cabeça da mulher, e Deus é o cabeça de Cristo.”
 
-Our Children
-Equal to the model of your marriage is the model of your children.  Luke 7:35 says, “Wisdom is proved right by all her children.”
+O marido deve ser o provedor, sacerdote e protetor de sua família. Seu amor por eles o faz colocá-los à frente de si mesmo, de seu ego, de seus interesses narcisistas e de seus hobbies. Ele vive por eles. O modelo do marido é Cristo, conforme observado em Efésios 5:25, “Maridos, amai vossas esposas, assim como Cristo amou a igreja e entregou-se por ela.”
 
-How your children behave themselves, obey, and respect authority is also a model.  They are a direct reflection of you.
+Um estilo de vida amoroso e fiel com sua pessoa favorita na terra que demonstra para toda a comunidade o que significa servir, perdoar e se entregar a outra pessoa.
 
-Section II: Consistency
-The Pace of Grace
+Nossos Filhos
+Igual ao modelo do seu casamento é o modelo dos seus filhos. Lucas 7:35 diz: “Mas a sabedoria é justificada por todos os seus filhos.”
 
-Fixed.  Immovable.  Consistent.
+Como seus filhos se comportam, obedecem e respeitam a autoridade também é um modelo. Eles são um reflexo direto de você.
 
-The character of the model man has consistently stood the test of time.  He can be counted on. People can predict that he will pass through the storms, the changes, and the whims of culture with fixed and immovable character.
+Seção II: Consistência
+O Ritmo da Graça
 
-The Christian life is a race of endurance.  It’s about going the distance and finishing strong in life. Model men must learn the pace of grace.
+Fixo. Imóvel. Consistente.
 
-Moses came to a place in his life where his pace was about to kill him, “Moses’ father-in-law replied, ‘What you are doing is not good. You and these people who come to you will only wear yourselves out. The work is too heavy for you; you cannot handle it alone’” (Exodus 18:17-18).
+O caráter do homem modelo consistentemente resistiu ao teste do tempo. Ele pode ser contado. As pessoas podem prever que ele atravessará as tempestades, as mudanças e os caprichos da cultura com um caráter fixo e imóvel.
 
-Four things to focus on to step into the pace of grace:
+A vida cristã é uma corrida de resistência. É sobre percorrer a distância e terminar forte na vida. Homens modelo devem aprender o ritmo da graça.
 
-1. Your Yoke
-Jesus said in Matthew 11:28-30, “Come to me, all you who are weary and burdened, and I will give you rest. Take my yoke upon you and learn from me, for I am gentle and humble in heart, and you will find rest for your souls. For my yoke is easy and my burden is light.”
+Moisés chegou a um ponto em sua vida onde seu ritmo estava prestes a matá-lo, “Jetro, seu sogro, respondeu, 'O que você está fazendo não é bom. Você e essas pessoas que vêm até você só se esgotarão. O trabalho é pesado demais para você; você não pode lidar com isso sozinho'” (Êxodo 18:17-18).
 
-The word Abide in John 15 means “working to full capacity in a relaxed state of faith.”  God expects us to work hard, to not have laziness anywhere around our character.  However, He also expects us to inwardly remain relaxed, turning over the pressures and stress of success as we abide in Him.
+Quatro coisas para se concentrar para entrar no ritmo da graça:
 
-2. Your Inner Circles
-Jesus gave most of His time to the people closest to Him. First was His innermost circle of three disciples:  Peter, James, and John.  Then came the full group of twelve disciples.  After that came the seventy He sent out to do ministry.
+1. Seu Jugo
+Jesus disse em Mateus 11:28-30, “Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Peguem meu jugo sobre vocês e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois meu jugo é fácil e meu fardo é leve.”
 
-3. Your Money
-Financial pressure eats away at you, stresses you out in the night, and never leaves your mind.  There is one word that will immediately take that pressure off you: margins.
+A palavra Permanecer em João 15 significa "trabalhar em plena capacidade em um estado relaxado de fé." Deus espera que trabalhemos arduamente, para não ter preguiça em nosso caráter. No entanto, Ele também espera que permaneçamos relaxados interiormente, entregando as pressões e o estresse do sucesso enquanto permanecemos Nele.
 
-Money is about margins.  Set certain guidelines for yourself:
+2. Seus Círculos Íntimos
+Jesus dedicou a maior parte de Seu tempo às pessoas mais próximas a Ele. Primeiro, estava Seu círculo íntimo de três discípulos: Pedro, Tiago e João. Depois vinha o grupo completo dos doze discípulos. Depois disso, vieram os setenta que Ele enviou para fazer o ministério.
 
-Follow the 10/10/80 rule.  Tithe 10%, save 10%, and live off 80%.
-Establish a 90% budget.  Set your spending at 90% of your previous year’s income.
-Live below your means.
-4. Your Opportunities
-Opportunities are sudden, unexpected doorways apparently leading to future advancement. It is easy to jump at every opportunity: new properties, more locations, board positions, media opportunities, and so on.  The question is, did God provide this opportunity, or has Satan sent it to sap your resources, personnel, and energy?
+3. Seu Dinheiro
+A pressão financeira consome você, estressa você durante a noite e nunca sai da sua mente. Há uma palavra que imediatamente tirará essa pressão de você: margens.
 
-Power over Yourself
-If anyone desires to come after Me, let him deny himself, and take up his cross daily, and follow Me.  – Luke 9:23
-The fifth critical component of the pace of grace is an area all its own: discipline.  Pace is all about discipline. You are who you are because of the daily schedule you have maintained.
+Dinheiro é sobre margens. Defina certas diretrizes para si mesmo:
 
-Years ago Charles Hummel wrote Tyranny of the Urgent and points out how we too often get caught up in the trap of letting the urgent things in life take rule over the important things.
+Siga a regra 10/10/80. Dízimo de 10%, poupança de 10% e viva com 80%.
+Estabeleça um orçamento de 90%. Defina seus gastos em 90% da sua renda do ano anterior.
+Viva abaixo de suas possibilidades.
+4. Suas Oportunidades
+Oportunidades são portas repentinas e inesperadas aparentemente levando ao avanço futuro. É fácil saltar para cada oportunidade: novas propriedades, mais locais, posições em conselhos, oportunidades na mídia e assim por diante. A questão é, Deus providenciou esta oportunidade, ou Satanás a enviou para esgotar seus recursos, pessoal e energia?
 
-In Mark 1:35, Jesus said, “Very early in the morning, while it was still dark, Jesus got up, left the house and went off to a solitary place, where he prayed.” Jesus started and ended His days in prayer.
+Poder sobre Si Mesmo
+Se alguém deseja vir após Mim, negue-se a si mesmo, tome sua cruz diariamente e siga-me. – Lucas 9:23
+O quinto componente crítico do ritmo da graça é uma área por si só: disciplina. Ritmo é tudo sobre disciplina. Você é quem você é por causa da programação diária que manteve.
 
-I have so much to do that I shall spend the first three hours in prayer. - Martin Luther
+Anos atrás, Charles Hummel escreveu Tirania do Urgente e aponta como frequentemente caímos na armadilha de deixar as coisas urgentes na vida tomar o lugar das coisas importantes.
 
-A second discipline for your schedule is how much you work every week.  Try not to work over 50 hours a week.  “Work” refers to time away from your family.  That means that Little League coaching and volunteering need to be included in that amount.  In essence, it’s the responsibilities that take you outside the home.
+Em Marcos 1:35, Jesus disse, “Bem cedo de manhã, enquanto ainda estava escuro, Jesus levantou-se, saiu de casa e foi para um lugar solitário, onde orou.” Jesus começava e terminava seus dias em oração.
 
-The Sabbath principle is critical for long-term success.
+Tenho tanto a fazer que passarei as primeiras três horas em oração. - Martinho Lutero
 
-Healthy living is based on eating, sleeping, and exercise.  Which area of those three is your biggest challenge?
+Uma segunda disciplina para sua agenda é quanto você trabalha toda semana. Tente não trabalhar mais de 50 horas por semana. "Trabalho" refere
 
-Your relationship with your children is going to be based, not upon how much you provided, but how well you provided a lifetime full of fun, bonding, and meaning.
+-se à sua ocupação principal, não ao ministério extra ou hobbies.
 
-Living a Life of Purpose
-If only I may finish my course…  – Acts 20:24
-Everyone is caught up in activity.  But activity without purpose becomes mindless, boring, and depressing.
+Um dos pecados mais negligenciados é o trabalho em excesso. Precisamos desacelerar.
 
-Consistency is indeed about pace—pace of drive, pace of relationships, pace of finances, pace of opportunities, and pace of discipline.  Without purpose, none of it works.
+Vamos manter este ritmo juntos. Vamos permanecer no ritmo da graça.
 
-William Booth, founder of Salvation Army, was an invalid at 81.  He could not make the annual conference and was asked to send a telegram to the thousands of delegates gathered.  He thought for days about a one-word message that would embody his entire life’s work and came up with “OTHERS.”
-
-Purpose drives you toward your divine assignment.
-
-If you were on your deathbed conversing with your granddaughter about what was important in life, what would you say?Purpose is about priorities.  It is also about finding your mission and remaining focused on it.
-
-Ambition can be defined as the insatiable drive to please and be celebrated by others.Ambition employs all the tactics of the world: persuasion, manipulation, deception, gossip, betrayal, and anger.
-
-Paul said in 2 Corinthians 5:9, “We also have as our ambition…to be pleasing to Him.”
-
-God made you as a servant of others, not as a driving, manipulative “tree climber” who lives to see his name lifted higher and higher above all other names.We live to give, live to serve, live to love.
-
-Three principles of personal purpose & mission:
-
-1. Your mandate
-A mandate is something you will die to achieve. Consider your mandate serving people and pleasing God.
-
-2. Your method
-What has God called you particularly to in serving others and pleasing Him?
-
-3. Your money
-Finances are the most tangible way you can serve others.  You use your money either to build influence or to serve people.
-
-Jesus said, “You cannot serve God and money” (Luke 16:13).  Accumulating more and more wealth is not a purpose in life, but a channel through which you can serve more and more people.
-
-Section III: Connections
-Connections are all about relationships.
-
-There are three long-term relationships where others will look to you as a model: being a model husband, a model parent, and a model mentor.
-
-Making Mama Happy
-Husbands, live with your wives in an understanding way. – 1 Peter 3:7
-Though you are the leader of your family, your wife controls the environment.  In others words, if Mama ain’t happy, ain’t nobody happy!
-
-Consider the seven major mistakes Stockstill admits from his 37 years of marriage:
-
-1. Financial Insecurity
-A woman is attracted to your security.  She felt a sense of security that you would take care of her and her children for life.
-
-2. Loneliness
-Wives need continual, deep, intimate fellowship with their men.  Many wives are lonely!
-
-It’s possible to be in her company without being her companion.She married you for companionship, to be someone she could talk to about intelligent things, her dreams, and her difficulties.
-
-She needs your love, which involves listening and companionship.
-
-3. Lack of Routine
-Interruptions make a wife unhappy.
-
-If you don’t have some solid boundaries with other people and learn to say no, she’ll start feeling that your life is “open for business” twenty-four hours a day and she’s second fiddle.
-
-4. Communication Issues
-Wives need to be able to freely communicate their frustrations or observations about you to you. God provides your wife to be your helper and partner.  She can make you a far better man than you are right now (Genesis 2:18).
-
-Socrates said, “A life unexamined is not worth living!”  Let your wife help.
-
-5. Dishonor
-Treat her like she’s queen of the world, “showing honor to the woman as the weaker vessel…that your prayers may not be hindered” (1 Peter 3:7).
-
-The way you are honoring (or dishonoring) your wife could be affecting the way your prayers are being answered by God.
-
-6. Mistrust
-A wife needs to feel transparency and honesty from her husband. Make yourself totally accountable to your wife: in financial matters, taxes, travel, and every other dimension of life.
-
-Have no secrets from her.  Never lie to her.
-
-7. Unprotected
-Ruth told Boaz, “I am Ruth your maid.  So spread your covering over your maid” (Ruth 3:9). Boaz represented protection from danger, want, and destitution.  Ruth needed a “covering,” one who would step between her and the broken life she was facing without him.
-
-Stockstill admits that at times, he left his wife to fend for herself!  At home, at church, and in the store, he did not protect her from anything awkward or difficult in her life.  Then, he asked for forgiveness.  From that day until now, when she doesn’t know what to do in a situation, she whispers, “Cover me.”
-
-Raising Up Sons and Daughters
-
-Absent, Anonymous, Abusive:  Our nation is reaping the results of a fatherless generation. According to the Centers for Disease Control, 85% of all children who show behavior disorders come from fatherless homes—20 times the average
-
-According to Fulton County (Geogia) and Texas Department of Corrections, 85% of all youths in prison come from fatherless homes—20 times the average According to U.S. Department of Health & Human Services, 71% of pregnant teenagers lack a father.
-
-Let’s look at two broad areas that contain a lot of fathering techniques in raising successful sons and daughters:
-
-1. Attention
-Spend at least 15 minutes a day in undisturbed conversation with each child.  (For Stockstill, with six children, that was an hour and a half a day!)
-
-Get involved in what they are involved in. Monitor all relationships.  Stockstill notes that they always had children come over to their house instead of letting children spend hours a day at houses of others.
-
-Have a family night.
-
-2. Affection
-God expressed it to Jesus this way in Mark 1:11, “You are my Son, whom I love; with you I am well pleased.”  First, He gave Him identity.  Second, the Father gave Jesus validity (whom I love).  He validated Christ publicly, stating to all that He loved Him.  Finally, He gave Him affirmation: “in you I am well pleased.”  He told Him personally how proud He was of Him.
-
-Affection, of course, should be physical.  Touch, hugs, and kisses should very much be part of your home culture. At the least, you can say, “I love you” and “I’m proud of you” repeatedly throughout your children’s lives.
-
-One of the greatest books is Boundaries with Kids by Henry Cloud and John Townsend.  It outlines the two principles you need to know to remain in control of the discipline and upbringing of your children: boundaries and consequences.
-
-As Hebrews 12:11 puts it, “No discipline seems pleasant at the time, but painful. Later on, however, it produces a harvest of righteousness and peace for those who have been trained by it.”
-
-From this day forward, start looking at your children differently.  See in them a future professor, president, and steward of all the resources you accumulate in your lifetime.  Train them as the best possible manager and ultimately replacement of you in the world.  That is your legacy, and it is the final chapter of a life that begins with integrity.
-
-Legacy…Your Highest Assignment
-We have heard and known stories our ancestors handed down to us. We will not hide these truths from our children; we will tell the next generation about the glorious deeds of the Lord, about his power and his mighty wonders. – Psalm 78:3-4
-A legacy is something handed down, passed on to the next generation.
-
-Elijah is the perfect example of a mentor.  From 1 Kings 19:11-13 & 16, “The Lord said, ‘Go out and stand on the mountain in the presence of the Lord, for the Lord is about to pass by.’  Then a great and powerful wind tore the mountains apart and shattered the rocks before the Lord, but the Lord was not in the wind. After the wind there was an earthquake, but the Lord was not in the earthquake. After the earthquake came a fire, but the Lord was not in the fire. And after the fire came a gentle whisper. When Elijah heard it, he pulled his cloak over his face and went out and stood at the mouth of the cave.  Then a voice said to him, ‘What are you doing here, Elijah?’… Also, anoint Elisha son of Shaphat from Abel Meholah to succeed you as prophet.”
-
-The kingdom of God is like a chain or a relay race.  Mentoring and discipleship of others is the baton, and passing it on should rank as your highest assignment in your lifetime.Paul said to the Romans (1:11-12), “I long to see you so that I may impart to you some spiritual gift to make you strong—that is, that you and I may be mutually encouraged by each other’s faith.”
-
-Legacy is the process by which God takes your character, consistency, and connections to transfer kingdom values to the next generation.  Legacy is about raising up “sons.”
-
-Mentoring is spelled T-I-M-E.  It is not a lesson or a lecture; it is a lifestyle.Mentoring is hanging out together, traveling together, listening, sharing, and being there when they are going through a struggle.
-
-Jesus and His Disciples
-There was no better mentor who left a longer legacy than Jesus Christ.  How did He do it?  Four words:
-
-1. Selection
-Jesus chose those He would leave His legacy with carefully.
-
-2. Impartation
-Jesus had intentionality about the men He chose. You are going to have to become intentional about mentoring others.  Take them with you to do whatever you do: hunting and fishing, going to ball games, eating out, rebuilding an engine block.  Do life together.
-
-3. Confrontation
-Without confrontation, there is no change.A question like, “Why are you doing that?” can change the direction of someone you are mentoring.  It is challenging his overconfidence, selfishness, inconsistency, or wrong attitudes.
-
-4. Commitment
-Alexander the Great arrived on the shores of Persia to face the most formidable naval fleet in the world.  The Greeks were far outnumbered by the Persians.  Alexander, however, gave the command, “Burn the boats.”  There would be no retreat or exit strategy.  They would win the war and go home in the boats of their enemies, or they would die.
-
-Your Legacy
-Our nation is out of control.  A fatherless generation is lashing out at those who spurned them, those who spoiled them.  Without discipline, there is no restraint.  A godless generation, caught up in the imaginary world of video, has little regard for life or property.
-
-Here are three guidelines, if you are ready to wake up:
-
-Recognize the members of the next generation as important.  They must feel that they are not only being tolerated but also being developed.
-Give them some “wheel time.”  Surely, you remember when your first child got a driver’s license.  “Wheel time” gives confidence.
-Give them some mercy.  Mentoring takes patience.  When a person falls from a horse, getting back on the saddle quickly saves him from a lifetime of limitation.
-Finally, Gather Around the Table…
-
-Viewed using Just Read
-
-Report an error
