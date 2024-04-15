@@ -1,58 +1,106 @@
-# REFERENCIAS
+- [REFERÊNCIAS](#referências)
+- [UMA NAÇÃO DESESPERADA POR MODELOS](#uma-nação-desesperada-por-modelos)
+- [1. INTEGRIDADE CORAJOSA](#1-integridade-corajosa)
+  - [1.1 SENDO UM HOMEM DE PALAVRA](#11-sendo-um-homem-de-palavra)
+  - [1.2 DIZENDO A VERDADE](#12-dizendo-a-verdade)
+  - [1.3 PAGANDO SUAS CONTAS](#13-pagando-suas-contas)
+    - [A Guerra pela Pureza Sexual](#a-guerra-pela-pureza-sexual)
+      - [Diretrizes Pessoais](#diretrizes-pessoais)
+
+
+**CURSO: HOMEM EXEMPLAR**
+
+# REFERÊNCIAS
 
 - [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
 - [Model Man: From Integrity to Legacy by Larry Stockstill](https://www.outofthisworldleadership.com/blog-posts/model-man-from-integrity-to-legacy-by-larry-stockstill/)
 
-Homem Modelo: Da Integridade ao Legado por Larry Stockstill
+# UMA NAÇÃO DESESPERADA POR MODELOS
 
-Uma Nação Desesperada por Modelos
-Mas para nos oferecermos como modelo para vocês, para que vocês sigam nosso exemplo. – 2 Tessalonicenses 3:9
-A América está em apuros. Nossa liderança espiritual parece ter perdido suas bases. A América ganhou em riqueza mas perdeu sua influência.
+_Mas para nos oferecermos como modelo para vocês, para que vocês sigam nosso exemplo._ 2 Tessalonicenses 3:9
 
-Tornar-se um homem modelo é o foco deste livro, conforme expresso em 2 Tessalonicenses 3:9.
+Ser um modelo é deixar uma **impressão**. As impressões podem ser boas ou ruins. Paulo procurou ser um homem exemplar, cujo modo de vida, integridade, pureza, ritmo, propósito e legado pudessem abalar um império romano ímpio.
 
-Ser um modelo é causar uma impressão. As impressões podem ser boas ou ruins. Paulo procurou ser um homem modelo, cujo modo de vida, integridade, pureza, ritmo, propósito e legado pudessem abalar um império romano ímpio. Paulo escreveu em 1 Coríntios 4:16, "Portanto, eu vos exorto, imitai-me." Ele disse novamente em 1 Coríntios 11:1, "Imitai-me, assim como eu também imito a Cristo."
+Vejamos o que Paulo falou sobre ser um modelo:
 
-Hoje, mais do que nunca, precisamos de homens modelo que se destaquem do comum da humanidade como homens de piedade e integridade. Homens modelo:
+1. 1 Coríntios 4:16: _"Portanto, suplico-lhes que sejam meus **imitadores**."_
+2. 1 Coríntios 11:1: _"Tornem-se meus **imitadores**, assim como eu o sou de Cristo."_
+3. Filipenses 3:17: _"Irmãos, sejam meus **imitadores** e observem os que vivem de acordo com o padrão que lhes apresentamos."_
+4. 1 Tessalonicenses 1:6: _"E vocês se tornaram **imitadores** nossos e do Senhor, pois receberam a palavra em meio a muita tribulação, com alegria que vem do Espírito Santo."_
+5. Tito 2:7a: _"Em tudo seja você mesmo um **exemplo** para eles, fazendo boas obras."_
+6. 2 Tessalonicenses 3:9: _"Não porque não tivéssemos tal direito, mas para oferecer-nos a vocês como **modelo a ser imitado**."_
 
-Honram suas esposas.
-Pagam suas contas e mantêm sua palavra.
-Assumem responsabilidade.
-Dizem a verdade.
-Funcionam como exemplos para a próxima geração.
-Vivem antes de falar.
-Modelam antes de exigir.
-Seção I: Caráter
-Integridade Corajosa
-Que a integridade e a retidão me preservem. – Salmo 25:21
+
+Hoje, mais do que nunca, precisamos de **homens exemplares** que se destaquem do comum da humanidade como homens santos e íntegros. Homens exemplares:
+- Honram suas esposas.
+- Pagam suas contas e cumprem sua palavra.
+- Assumem responsabilidade.
+- Votam com consciência.
+- Dizem a verdade.
+- Agem como exemplos para a próxima geração.
+- Oram por avivamento.
+- Sabem que estão sendo observados como um exemplo.
+- Fogem da imoralidade.
+- Vivem o que falam.
+- São um exemplo antes de exigir que os outros sejam.
+
+Pare de se preocupar com o que acontece em Brasília. Mude a si mesmo. Chegue cedo no trabalho e não perca o controle se o carro não funcionar!
+
+Pare de buscar prazer a todo custo e de se envolver em relacionamentos questionáveis.  Prefira perder um negócio do que mentir, omitir a verdade ou deixar de fora um fato essencial. É hora dos pais chegarem cedo em casa e colocarem seus filhos em primeiro lugar.
+
+Podemos choramingar e reclamar de nosso país, mas nada será capaz de parar um exército de homens honestos, honráveis e santos.
+
+# 1. INTEGRIDADE CORAJOSA
+
+_Que a integridade e a retidão me protejam._ Salmos 25:21
+
 Simplificando, integridade é a coragem de fazer a coisa certa. É viver uma vida de retidão diante de um mundo corrupto. Um homem de verdade é definido pela sua integridade.
 
+Integridade exige uma coragem ousada. A integridade é o fundamento de um homem exemplar.
 
-Considere as palavras de 1 Samuel 3:19, quando o Senhor estava com Samuel e "nenhuma de suas palavras caiu ao chão." Quando você faz um compromisso com alguém, torna-se a coisa mais importante da sua vida honrar esse compromisso. Integridade é fazer promessas e cumpri-las.
+Provérbios 22:1 diz: _"A boa reputação vale mais do que grandes riquezas; desfrutar de boa estima é melhor do que prata e ouro."_
 
-Dizer a Verdade
+Como você é definido? Você pode ser comprado, subornado ou manipulado? O seu bom nome significa mais para você do que qualquer quantia de dinheiro ou concessões ao pecado?
+
+## 1.1 SENDO UM HOMEM DE PALAVRA
+
+Considere as palavras de 1 Samuel 3:19, o Senhor estava com Samuel e _"fazia com que todas as suas palavras se cumprissem."_
+
+Quando você faz um compromisso com alguém, torna-se a coisa mais importante da sua vida honrar esse compromisso. Integridade é fazer promessas e cumpri-las.
+
+Nosso lema deve ser: _"Se eu disse, nós temos que fazer."_  Honrar sua palavra é agir como Deus, pois Ele sempre cumpre Sua palavra. E nós devemos fazer o mesmo.
+
+## 1.2 DIZENDO A VERDADE
+
 Integridade é a base do homem modelo, e a verdade é o fundamento da integridade. Ser real, autêntico, genuíno e transparente constrói integridade.
 
 As pessoas são muito compreensivas quando você comete um erro, mas tendem a perder a confiança quando sentem que você não é verdadeiro e genuíno.
 
-O comediante George Carlin brincou recentemente: “A verdadeira razão pela qual não podemos ter os Dez Mandamentos em um tribunal: Você não pode postar 'Não furtarás', 'Não cometerás adultério' e 'Não mentirás' em um prédio cheio de advogados, juízes e políticos. Isso cria um ambiente de trabalho hostil!” Ele provocou muitas risadas, mas é realmente triste porque é verdade. Estudos mostraram que uma alta porcentagem de pessoas agora acredita que mentir é uma parte normal da vida.
+O comediante George Carlin brincou recentemente: _“A verdadeira razão pela qual não podemos ter os Dez Mandamentos em um tribunal: Você não pode postar 'Não furtarás', 'Não cometerás adultério' e 'Não mentirás' em um prédio cheio de advogados, juízes e políticos. Isso cria um ambiente de trabalho hostil!”_ Ele provocou muitas risadas, mas é realmente triste porque é verdade. Estudos mostraram que uma alta porcentagem de pessoas agora acredita que mentir é uma parte normal da vida.
 
-No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. "Eu estraguei tudo." Seu chefe pensa: “Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade.”
+No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. _"Eu estraguei tudo."_ Seu chefe pensa: “Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade.”
 
 Um homem que é seguro de quem ele é não precisa mentir, mesmo quando comete erros. A insegurança gera mentiras.
 
-Pagar Suas Contas
+
+## 1.3 PAGANDO SUAS CONTAS
+
 Suas finanças dizem mais sobre sua integridade do que quase qualquer outro indicador. Se você gerencia o dinheiro de forma responsável, as pessoas vão respeitar e confiar mais em você.
 
 As pessoas na sua comunidade o conhecem por suas finanças. Pagar suas contas em dia é muito importante. Quanto mais tempo você fizer isso, maior será sua pontuação de crédito e maior será a opinião da comunidade sobre você.
 
-Romanos 13:6-8 diz: “Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei.”
+**Romanos 13:6-8** diz:
+> "Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei."
 
 Nenhum de nós quer pagar mais ao governo do que deve, mas nossa integridade exige que paguemos de forma justa e pontual ao governo. O mesmo princípio vale para Deus e Seu dízimo. Se não posso ter integridade com o dízimo de Deus, como terei integridade com as obrigações do homem?
 
-Daniel era tão meticuloso em seu manejo das finanças que seus inimigos “não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele” (Daniel 6:4).
+**Daniel 6:4** menciona que Daniel era tão meticuloso em seu manejo das finanças que seus inimigos:
+> "não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele."
 
-A Guerra pela Pureza Sexual
+
+---
+
+### A Guerra pela Pureza Sexual
 
 Um estudo recente revelou que 57% dos homens casados, incluindo cristãos, admitiram ter sido infiéis, e 74% disseram que teriam um caso se nunca fossem pegos! As estatísticas são impressionantes. Outro estudo, este realizado pela Nielsen, mostrou que mais de 50% dos homens cristãos dizem ser viciados em pornografia — não apenas em visualização, mas viciados! Cinquenta e um por cento dos pastores admitem que a pornografia é uma tentação pessoal, e 40% dizem que estão lutando contra isso. Um terço desses 40% diz que viu pornografia no último mês.
 
@@ -62,19 +110,19 @@ Se você puder manter alguns padrões por toda a sua vida, suas chances de perma
 
 O plano de Satanás é “roubar, matar e destruir” (João 10:10). Ele até transforma uma simples curiosidade em uma catástrofe.
 
-Diretrizes Pessoais
+#### Diretrizes Pessoais
 Você deve estabelecer diretrizes pessoais para permanecer sexualmente puro.
 
-1. Responsabilidade
-Alguém disse uma vez: “Todos nós fazemos melhor quando estamos sendo observados.” Responsabilidade simplesmente significa que estamos voluntariamente nos colocando em uma posição onde outros podem cuidar de nossas almas. Jesus enviou Sua equipe dois a dois por uma razão (Lucas 10:1).
+1. **Responsabilidade**
+   Alguém disse uma vez: “Todos nós fazemos melhor quando estamos sendo observados.” Responsabilidade simplesmente significa que estamos voluntariamente nos colocando em uma posição onde outros podem cuidar de nossas almas. Jesus enviou Sua equipe dois a dois por uma razão (Lucas 10:1).
 
-Filtre a internet. Controle sua TV a cabo. Monitore suas correspondências. Observe seu local de trabalho.
+   Filtre a internet. Controle sua TV a cabo. Monitore suas correspondências. Observe seu local de trabalho.
 
-2. Compatibilidade
-Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher. Mantenha uma vida sexual saudável. Reconecte-se romanticamente. Proteja sua esposa.
+2. **Compatibilidade**
+   Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher. Mantenha uma vida sexual saudável. Reconecte-se romanticamente. Proteja sua esposa.
 
-3. Confiabilidade
-Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações em feriados e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
+3. **Confiabilidade**
+   Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações em feriados e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
 
 Eclesiastes 4:9-10 diz: “Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Pois se caírem, um levantará o seu companheiro; mas ai do que estiver só; pois, caindo, não haverá outro que o levante.”
 
@@ -83,11 +131,8 @@ John Wesley tinha 60.000 crentes metodistas em grupos pequenos semanais na Ingla
 Se um homem — qualquer homem — se comprometer com a consistência em um plano diário de leitura da Bíblia, sua maturidade espiritual irá às alturas e sua vulnerabilidade à tentação se tornará insignificante.
 
 Todos os Olhos Estão em Você
+
 Mas seja um exemplo para os fiéis em palavra, no procedimento, no amor, na fé, na pureza. – 1 Timóteo 4:12
-Integridade é como somos perante Deus quando ninguém está olhando. Pureza é ter fortes limites e muros ao nosso redor protegendo nossos corações da imoralidade sexual. Exemplo é como somos percebidos por outros em nosso círculo de influência. Como um banco de três pernas, se uma perna está faltando, nosso caráter não pode ficar de pé, nem suportar a pressão. É preciso ter todas as três pernas para ser equilibrado e forte.
-
-Para trazer nossa nação de volta à retidão, ela deve estar cheia de homens que aceitam a responsabilidade de serem admirados onde quer que estejam na vida. Eles não têm medo de inspeções próximas.
-
 Paulo nos desafia: “Irmãos, sede imitadores meus e observai os que assim se comportam segundo o modelo
 
  que tendes em nós” (Filipenses 3:17) e “Ninguém despreze a tua mocidade; mas sê o exemplo dos fiéis, na palavra, no procedimento, no amor, na fé, na pureza” (1 Timóteo 4:12).
@@ -114,10 +159,6 @@ Fixo. Imóvel. Consistente.
 O caráter do homem modelo consistentemente resistiu ao teste do tempo. Ele pode ser contado. As pessoas podem prever que ele atravessará as tempestades, as mudanças e os caprichos da cultura com um caráter fixo e imóvel.
 
 A vida cristã é uma corrida de resistência. É sobre percorrer a distância e terminar forte na vida. Homens modelo devem aprender o ritmo da graça.
-
-Moisés chegou a um ponto em sua vida onde seu ritmo estava prestes a matá-lo, “Jetro, seu sogro, respondeu, 'O que você está fazendo não é bom. Você e essas pessoas que vêm até você só se esgotarão. O trabalho é pesado demais para você; você não pode lidar com isso sozinho'” (Êxodo 18:17-18).
-
-Quatro coisas para se concentrar para entrar no ritmo da graça:
 
 1. Seu Jugo
 Jesus disse em Mateus 11:28-30, “Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Peguem meu jugo sobre vocês e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois meu jugo é fácil e meu fardo é leve.”
