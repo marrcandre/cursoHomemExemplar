@@ -4,6 +4,7 @@
   - [1.1 SENDO UM HOMEM DE PALAVRA](#11-sendo-um-homem-de-palavra)
   - [1.2 DIZENDO A VERDADE](#12-dizendo-a-verdade)
   - [1.3 PAGANDO SUAS CONTAS](#13-pagando-suas-contas)
+  - [PARA REFLETIR](#para-refletir)
     - [A Guerra pela Pureza Sexual](#a-guerra-pela-pureza-sexual)
       - [Diretrizes Pessoais](#diretrizes-pessoais)
 
@@ -23,13 +24,17 @@ Ser um modelo é deixar uma **impressão**. As impressões podem ser boas ou rui
 
 Vejamos o que Paulo falou sobre ser um modelo:
 
-1. 1 Coríntios 4:16: _"Portanto, suplico-lhes que sejam meus **imitadores**."_
-2. 1 Coríntios 11:1: _"Tornem-se meus **imitadores**, assim como eu o sou de Cristo."_
-3. Filipenses 3:17: _"Irmãos, sejam meus **imitadores** e observem os que vivem de acordo com o padrão que lhes apresentamos."_
-4. 1 Tessalonicenses 1:6: _"E vocês se tornaram **imitadores** nossos e do Senhor, pois receberam a palavra em meio a muita tribulação, com alegria que vem do Espírito Santo."_
-5. Tito 2:7a: _"Em tudo seja você mesmo um **exemplo** para eles, fazendo boas obras."_
-6. 2 Tessalonicenses 3:9: _"Não porque não tivéssemos tal direito, mas para oferecer-nos a vocês como **modelo a ser imitado**."_
+>_"Portanto, suplico-lhes que sejam meus **imitadores**."_ (1 Coríntios 4:16)
 
+>_"Tornem-se meus **imitadores**, assim como eu o sou de Cristo."_ (1 Coríntios 11:1)
+
+>_"Irmãos, sejam meus **imitadores** e observem os que vivem de acordo com o padrão que lhes apresentamos."_ (Filipenses 3:17)
+
+>_"E vocês se tornaram **imitadores** nossos e do Senhor, pois receberam a palavra em meio a muita tribulação, com alegria que vem do Espírito Santo."_ (1 Tessalonicenses 1:6)
+
+>_"Em tudo seja você mesmo um **exemplo** para eles, fazendo boas obras."_ (Tito 2:7)
+
+>_"Não porque não tivéssemos tal direito, mas para oferecer-nos a vocês como **modelo a ser imitado**."_ (2 Tessalonicenses 3:9)
 
 Hoje, mais do que nunca, precisamos de **homens exemplares** que se destaquem do comum da humanidade como homens santos e íntegros. Homens exemplares:
 - Honram suas esposas.
@@ -44,7 +49,7 @@ Hoje, mais do que nunca, precisamos de **homens exemplares** que se destaquem do
 - Vivem o que falam.
 - São um exemplo antes de exigir que os outros sejam.
 
-Pare de se preocupar com o que acontece em Brasília. Mude a si mesmo. Chegue cedo no trabalho e não perca o controle se o carro não funcionar!
+Pare de se preocupar com o que acontece nos altos escalões dos governos. Mude a si mesmo. Chegue cedo no trabalho e não perca o controle se o carro não funcionar!
 
 Pare de buscar prazer a todo custo e de se envolver em relacionamentos questionáveis.  Prefira perder um negócio do que mentir, omitir a verdade ou deixar de fora um fato essencial. É hora dos pais chegarem cedo em casa e colocarem seus filhos em primeiro lugar.
 
@@ -54,49 +59,83 @@ Podemos choramingar e reclamar de nosso país, mas nada será capaz de parar um 
 
 _Que a integridade e a retidão me protejam._ Salmos 25:21
 
-Simplificando, integridade é a coragem de fazer a coisa certa. É viver uma vida de retidão diante de um mundo corrupto. Um homem de verdade é definido pela sua integridade.
+Simplificando, **integridade é a coragem de fazer a coisa certa**. É viver uma vida de retidão diante de um mundo corrupto. Um homem de verdade é definido pela sua integridade.
 
 Integridade exige uma coragem ousada. A integridade é o fundamento de um homem exemplar.
 
-Provérbios 22:1 diz: _"A boa reputação vale mais do que grandes riquezas; desfrutar de boa estima é melhor do que prata e ouro."_
+>_"A boa reputação vale mais do que grandes riquezas; desfrutar de boa estima é melhor do que prata e ouro."_ (Provérbios 22:1)
 
 Como você é definido? Você pode ser comprado, subornado ou manipulado? O seu bom nome significa mais para você do que qualquer quantia de dinheiro ou concessões ao pecado?
 
 ## 1.1 SENDO UM HOMEM DE PALAVRA
 
-Considere as palavras de 1 Samuel 3:19, o Senhor estava com Samuel e _"fazia com que todas as suas palavras se cumprissem."_
+Considere as seguintes palavras:
 
-Quando você faz um compromisso com alguém, torna-se a coisa mais importante da sua vida honrar esse compromisso. Integridade é fazer promessas e cumpri-las.
+>_"O Senhor estava com Samuel e fazia com que **todas as suas palavras se cumprissem**."_ 1 Samuel 3:19
+
+Quando você faz um compromisso com alguém, torna-se a coisa mais importante da sua vida honrar esse compromisso. **Integridade é fazer promessas e cumpri-las.**
 
 Nosso lema deve ser: _"Se eu disse, nós temos que fazer."_  Honrar sua palavra é agir como Deus, pois Ele sempre cumpre Sua palavra. E nós devemos fazer o mesmo.
 
 ## 1.2 DIZENDO A VERDADE
 
-Integridade é a base do homem modelo, e a verdade é o fundamento da integridade. Ser real, autêntico, genuíno e transparente constrói integridade.
+Integridade é a base do homem exemplar, e a verdade é o fundamento da integridade. Ser real, autêntico, genuíno e transparente constrói integridade.
 
-As pessoas são muito compreensivas quando você comete um erro, mas tendem a perder a confiança quando sentem que você não é verdadeiro e genuíno.
+**As pessoas são muito compreensivas quando você comete um erro, mas tendem a perder a confiança quando sentem que você não é verdadeiro e genuíno.**
 
-O comediante George Carlin brincou recentemente: _“A verdadeira razão pela qual não podemos ter os Dez Mandamentos em um tribunal: Você não pode postar 'Não furtarás', 'Não cometerás adultério' e 'Não mentirás' em um prédio cheio de advogados, juízes e políticos. Isso cria um ambiente de trabalho hostil!”_ Ele provocou muitas risadas, mas é realmente triste porque é verdade. Estudos mostraram que uma alta porcentagem de pessoas agora acredita que mentir é uma parte normal da vida.
+O comediante George Carlin certa vez brincou:
 
-No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. _"Eu estraguei tudo."_ Seu chefe pensa: “Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade.”
+>_“A verdadeira razão pela qual não podemos ter os Dez Mandamentos em um tribunal: Você não pode postar 'Não furtarás', 'Não cometerás adultério' e 'Não mentirás' em um prédio cheio de advogados, juízes e políticos. Isso cria um ambiente de trabalho hostil!”_
+
+Ele provocou muitas risadas, mas é realmente triste porque é verdade. Estudos mostraram que uma alta porcentagem de pessoas agora acredita que mentir é uma parte normal da vida.
+
+Por que o oficial de justiça pede que você faça o seguinte juramento no tribunal?
+
+>_"Promete dizer a verdade, toda a verdade e nada além da verdade?"_
+
+É porque já inventamos muitas formas de mentir!
+
+- **Toda a verdade:** não retenha informações.
+- **Nada além da verdade:** não embeleze nem exagere.
+
+**Uma mentira é algo comunicado com a intenção de enganar.**
+
+- Posso **não dizer nada** e ainda assim ser enganoso.
+- Se **retenho** informações essenciais, que muda a percepção das pessoas, estou mentindo.
+- Se eu **aumento** as capacidades de um produto, ou exagero as minhas habilidades, estou mentindo.
+
+Se você é casado, sua sinceridade deve começar com sua esposa. Mesmo que você tenha errado e esteja envergonhado, você nunca deve mentir para sua esposa. A força do seu relacionamento deve ser construída na confiança mútua e isso começa dizendo a verdade um para o outro.
+
+No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. Você diz: _"Eu estraguei tudo."_ Seu chefe pensa: “_Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade._”
 
 Um homem que é seguro de quem ele é não precisa mentir, mesmo quando comete erros. A insegurança gera mentiras.
 
-
 ## 1.3 PAGANDO SUAS CONTAS
 
-Suas finanças dizem mais sobre sua integridade do que quase qualquer outro indicador. Se você gerencia o dinheiro de forma responsável, as pessoas vão respeitar e confiar mais em você.
+Suas finanças dizem mais sobre sua integridade do que qualquer outro indicador. Se você administra o dinheiro de forma responsável, as pessoas respeitarão e confiarão mais em você.
 
 As pessoas na sua comunidade o conhecem por suas finanças. Pagar suas contas em dia é muito importante. Quanto mais tempo você fizer isso, maior será sua pontuação de crédito e maior será a opinião da comunidade sobre você.
 
-**Romanos 13:6-8** diz:
-> "Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei."
+Veja o que Paulo diz sobre o pagamento de impostos:
 
-Nenhum de nós quer pagar mais ao governo do que deve, mas nossa integridade exige que paguemos de forma justa e pontual ao governo. O mesmo princípio vale para Deus e Seu dízimo. Se não posso ter integridade com o dízimo de Deus, como terei integridade com as obrigações do homem?
+>_"Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei."_ (Romanos 13:6-8)
 
-**Daniel 6:4** menciona que Daniel era tão meticuloso em seu manejo das finanças que seus inimigos:
-> "não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele."
+Nenhum de nós quer pagar mais ao governo do que deve, mas nossa integridade exige que paguemos de forma justa e pontual ao governo.
 
+O mesmo princípio vale para Deus e Seu **dízimo**. Se não posso ter integridade com o dízimo de Deus, como terei integridade com as obrigações devidas ao homem?
+
+Daniel era tão meticuloso em seu manejo das finanças que seus inimigos:
+
+> _"não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele."_ (Daniel 6:4)
+
+Resumindo, integridade é a fundação de quem você é, do que sua família se tornará e do sucesso que seus negócios terão. É como você se comporta quando ninguém está olhando. É viver a vida com temor a Deus sem se importar com a opinião do homem. Viver com integridade requer coragem.
+
+## PARA REFLETIR
+
+1. Integridade tem a ver com dizer a verdade. **Você já passou por uma situação em que decidiu dizer a verdade, mesmo sendo uma situação difícil?**
+2. _"A palavra de um homem é seu comprometimento inviolável com a obrigação assumida."_ **Você já teve que manter sua palavra, mesmo tendo custado algo?**
+3. Pagar as contas em dia é um sinal de integridade. **Que passos você tem dado para garantir que suas finanças estejam em ordem?**
+4. Roubar pode ter várias formas: sonegar impostos, não pagar o dízimo, remover algo do local de trabalho. **O Senhor está falando com você sobre algo que você precisa devolver ao governo, ao Senhor, ao seu vizinho ou à sua empresa?**
 
 ---
 
