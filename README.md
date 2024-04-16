@@ -1,22 +1,6 @@
-- [REFERÊNCIAS](#referências)
-- [UMA NAÇÃO DESESPERADA POR MODELOS](#uma-nação-desesperada-por-modelos)
-- [1. INTEGRIDADE CORAJOSA](#1-integridade-corajosa)
-  - [1.1 SENDO UM HOMEM DE PALAVRA](#11-sendo-um-homem-de-palavra)
-  - [1.2 DIZENDO A VERDADE](#12-dizendo-a-verdade)
-  - [1.3 PAGANDO SUAS CONTAS](#13-pagando-suas-contas)
-  - [PARA REFLETIR](#para-refletir)
-    - [A Guerra pela Pureza Sexual](#a-guerra-pela-pureza-sexual)
-      - [Diretrizes Pessoais](#diretrizes-pessoais)
-
-
 **CURSO: HOMEM EXEMPLAR**
 
-# REFERÊNCIAS
-
-- [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
-- [Model Man: From Integrity to Legacy by Larry Stockstill](https://www.outofthisworldleadership.com/blog-posts/model-man-from-integrity-to-legacy-by-larry-stockstill/)
-
-# UMA NAÇÃO DESESPERADA POR MODELOS
+# INTRODUÇÃO: UMA NAÇÃO DESESPERADA POR MODELOS
 
 _Mas para nos oferecermos como modelo para vocês, para que vocês sigam nosso exemplo._ 2 Tessalonicenses 3:9
 
@@ -235,4 +219,9 @@ Uma segunda disciplina para sua agenda é quanto você trabalha toda semana. Ten
 Um dos pecados mais negligenciados é o trabalho em excesso. Precisamos desacelerar.
 
 Vamos manter este ritmo juntos. Vamos permanecer no ritmo da graça.
+
+# REFERÊNCIAS
+
+- [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
+- [Model Man: From Integrity to Legacy by Larry Stockstill](https://www.outofthisworldleadership.com/blog-posts/model-man-from-integrity-to-legacy-by-larry-stockstill/)
 
