@@ -114,7 +114,7 @@ Daniel era tão meticuloso em seu manejo das finanças que seus inimigos:
 
 Resumindo, integridade é a fundação de quem você é, do que sua família se tornará e do sucesso que seus negócios terão. É como você se comporta quando ninguém está olhando. É viver a vida com temor a Deus sem se importar com a opinião do homem. Viver com integridade requer coragem.
 
-## PARA REFLETIR
+## QUESTÕES PARA DISCUSSÃO
 
 1. Integridade tem a ver com dizer a verdade. **Você já passou por uma situação em que decidiu dizer a verdade, mesmo sendo uma situação difícil?**
 2. _"A palavra de um homem é seu comprometimento inviolável com a obrigação assumida."_ **Você já teve que manter sua palavra, mesmo tendo custado algo?**
@@ -123,44 +123,164 @@ Resumindo, integridade é a fundação de quem você é, do que sua família se 
 
 ---
 
-### A Guerra pela Pureza Sexual
+# 2. A GUERRA PELA PUREZA SEXUAL
 
-Um estudo recente revelou que 57% dos homens casados, incluindo cristãos, admitiram ter sido infiéis, e 74% disseram que teriam um caso se nunca fossem pegos! As estatísticas são impressionantes. Outro estudo, este realizado pela Nielsen, mostrou que mais de 50% dos homens cristãos dizem ser viciados em pornografia — não apenas em visualização, mas viciados! Cinquenta e um por cento dos pastores admitem que a pornografia é uma tentação pessoal, e 40% dizem que estão lutando contra isso. Um terço desses 40% diz que viu pornografia no último mês.
+Temos um inimigo que está determinado a nos destruir. Ele sabe que se conseguir nos derrubar, pode derrubar as nossas famílias, as nossas igrejas e por fim a nossa nação.
 
-C.S. Lewis disse em referência à sexualidade e à carne, “Pois a ‘natureza’ (no sentido de desejo natural) terá que ser controlada de qualquer forma, a menos que você vá arruinar toda a sua vida.” Homens estão literalmente arruinando suas vidas inteiras por falta de autocontrole.
+Nessa guerra, o inimigo tem muitas armas, mas a sua arma preferida contra os homens é a **impureza sexual**. Foi assim desdo o início, mas tem alcançado níveis nuclerares nos dias de hoje.
 
-Se você puder manter alguns padrões por toda a sua vida, suas chances de permanecer sexualmente fiel à sua esposa são quase de 100%. Esses padrões agem como muros ao redor de sua mente e coração, protegendo-o dos ataques sexuais que certamente virão.
+À medida em que os homens se tornam viciados em pornografia, a impureza sexual se torna uma epidemia. A pornografia é a droga mais viciante do mundo. Ela é a porta de entrada para a prostituição, a infidelidade, o divórcio e a destruição da família.
+
+Os homens estão viciados e isso está roubando seu tempo, sua produtividade, sua criatividade e seu destino divino. Isso impede os homens de ouvir a Deus.
+
+>_"Pois a carne deseja o que é contrário ao Espírito; e o Espírito, o que é contrário à carne. Eles estão em conflito um com o outro, **de modo que vocês não fazem o que desejam**."_ (Gálatas 5:17)
+
+C.S. Lewis disse em referência à sexualidade e à carne:
+
+>_“Pois a 'natureza' (no sentido de desejo natural) terá que ser controlada de um jeito ou de outro, a não ser que queiramos arruinar nossa vida.”_
+
+Homens estão literalmente arruinando suas vidas inteiras por falta de autocontrole.
+
+Se você puder manter alguns padrões por toda a sua vida, suas chances de manter a pureza sexual são quase de 100%. Esses padrões agem como muros ao redor de sua mente e coração, protegendo-o dos ataques sexuais que certamente virão.
 
 O plano de Satanás é “roubar, matar e destruir” (João 10:10). Ele até transforma uma simples curiosidade em uma catástrofe.
 
-#### Diretrizes Pessoais
-Você deve estabelecer diretrizes pessoais para permanecer sexualmente puro.
+Um homem pode caminhar puro, mas isso não acontece por acaso. Se vocẽ quer mesmo vencer essa luta, terá que estabelecer limites e levantar muros para manter o inimigo do lado de fora.
 
-1. **Responsabilidade**
-   Alguém disse uma vez: “Todos nós fazemos melhor quando estamos sendo observados.” Responsabilidade simplesmente significa que estamos voluntariamente nos colocando em uma posição onde outros podem cuidar de nossas almas. Jesus enviou Sua equipe dois a dois por uma razão (Lucas 10:1).
+## 2.1 Prestação de contas
 
-   Filtre a internet. Controle sua TV a cabo. Monitore suas correspondências. Observe seu local de trabalho.
+Alguém disse uma vez: _“Todos nós fazemos melhor quando estamos sendo observados.”_
 
-2. **Compatibilidade**
-   Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher. Mantenha uma vida sexual saudável. Reconecte-se romanticamente. Proteja sua esposa.
+Prestação de contas  significa simplesmente que estamos voluntariamente nos colocando em uma posição onde outros podem cuidar de nossas almas.
 
-3. **Confiabilidade**
-   Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações em feriados e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
+Algumas dicas práticas:
 
-Eclesiastes 4:9-10 diz: “Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Pois se caírem, um levantará o seu companheiro; mas ai do que estiver só; pois, caindo, não haverá outro que o levante.”
+- Informe sua esposa (familiar ou amigo) de sua localização e relacionamentos.
+- Viaje com um companheiro. Jesus enviou Sua equipe dois a dois por uma razão (Lucas 10:1).
+- Filtre a Internet. Isso inclui TV a cabo, canais de streaming, redes sociais e tudo mais.
+- Monitore sua correspondência.
+- Vigie seu local de trabalho.
+- Dê acesso a sua esposa (ou a um amigo) ao seu telefone e computador.
 
-John Wesley tinha 60.000 crentes metodistas em grupos pequenos semanais na Inglaterra, unidos por uma simples pergunta que cada membro respondia por sua vez: “Que tentação você enfrentou esta semana e como você a superou?”
 
-Se um homem — qualquer homem — se comprometer com a consistência em um plano diário de leitura da Bíblia, sua maturidade espiritual irá às alturas e sua vulnerabilidade à tentação se tornará insignificante.
+Você deve estar pensando:
 
-Todos os Olhos Estão em Você
+_"Ok, e quanto à liberdade?"_
 
-Mas seja um exemplo para os fiéis em palavra, no procedimento, no amor, na fé, na pureza. – 1 Timóteo 4:12
-Paulo nos desafia: “Irmãos, sede imitadores meus e observai os que assim se comportam segundo o modelo
+**Um trem é livre somente quando está nos trilhos.**
 
- que tendes em nós” (Filipenses 3:17) e “Ninguém despreze a tua mocidade; mas sê o exemplo dos fiéis, na palavra, no procedimento, no amor, na fé, na pureza” (1 Timóteo 4:12).
+## 2.2. Compatibilidade
 
-A ordem ensina como ser um grande exemplo para o Senhor em todas as fases da vida. Regulamentos, regras e políticas mantêm a ordem na lei, nos negócios, no trânsito, nas finanças, no casamento, na educação, no esporte e praticamente em todas as áreas da vida. Algo em mim quer descartar essas políticas. Quero desconsiderá-las para mostrar minha independência. Essa atitude desafiadora e rebelde, se eu ceder a ela, destruirá meu exemplo. Não se trata apenas de seguir regras. Trata-se de respeitar a ordem que promove a liberdade dentro de limites estabelecidos.
+Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher.
+
+Algumas dicas práticas:
+
+**Mantenha uma vida sexual saudável.**
+
+Isso inclui contato sexual regular, romântico e recompensador. Se vocês estão tendo problemas, procure ajuda.
+
+**Reconecte-se romanticamente.**
+
+Compartihem as noites juntos, conversando, assistindo a um filme ou série que gostem, depois que os filhos estiverem dormindo. Faça com que sua rotina conduza à diversão e relacionamento íntimo antes de dormir. Vá para a cama em um horário adequado, sem os celulares. Esses pequenos passos podem salvar seu casamento e prevenir a destruição de seu exemplo espiritual.
+
+**Proteja sua esposa.**
+
+Seja sensível ao seu estado emocional e desafios que esteja enfrentando. Nunca a coloque em uma posição em que possa ser tentada por outro homem.
+
+## 2.3 Confiabilidade
+
+Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações de fim de semana e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
+
+O livro de Eclesiastes nos diz:
+
+>_“Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Pois se caírem, um levantará o seu companheiro; mas ai do que estiver só; pois, caindo, não haverá outro que o levante.”_ (Eclesiastes 4:9-10)
+
+
+**Participe de um GP semanalmente**
+
+Um GP semanal com outros homens que batalham contra as mesmas tentações que eu, tem tremendo poder para me manter puro.
+
+John Wesley tinha 60.000 crentes metodistas em grupos pequenos semanais na Inglaterra, unidos por uma simples pergunta que respondiam um de cada vez: _“Que tentação você enfrentou esta semana e como você a superou?”_
+
+Se você está olhando no rosto dos homens do seu GP toda semana, está na situação ideal para ser transparente, verdadeiro e vulnerável.
+
+**Adote um plano diário de leitura da Bíblia**
+
+Se um homem — qualquer homem — se comprometer com a ser consistente em um plano diário de leitura da Bíblia, sua maturidade espiritual irá às alturas e sua vulnerabilidade à tentação se tornará insignificante.
+
+Ler a Bíblia diariamente é como colocar telas para se proteger das moscas da tentação. É sua defesa mais forte contra a inflitração do inimigo na área sexual.
+
+**Pratique as disciplinas espirituais**
+
+Ore e leia a Bíblia diariamente, jejue toda semana, medite na Palavra, decore versículos, louve com canções, ore e cante no espírito.
+
+Essa prática constante tem o poder de te conectar ao Espírito Santo.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. **Você tem alguém com quem presta contas?** Se não, quem você pode convidar para ser seu parceiro de prestação de contas?
+2. Que sistemas ou muros deproteção você tem estabelecido para vencer as tentações? **Quais desses sistemas você precisa fortalecer?**
+3. A regra número um de Billy Graham era "Nunca fique sozinho com uma mulher que não seja sua esposa." Você enfrenta situações em que terá de aplicar essa regra? **Como você pode se proteger nessas situações?**
+4. Se você é casado, ter compatibilidade sexual com sua esposa pode impedir muita tentação. Quais saõ seus maiores desafios para manter a intimidade sexual nessemundo corrido e estressante?
+5. **Você tem um plano diário de leitura da Bíblia?** Se não, como você pode começar a implementar um plano de leitura diária da Bíblia? Que ferramentas você pode usar para ajudar a manter esse compromisso?
+
+---
+
+# 3. TODOS OS OLHOS ESTÃO EM VOCÊ
+
+>_"Mas seja um **exemplo** para os fiéis em palavra, no procedimento, no amor, na fé, na pureza."_ (1 Timóteo 4:12)
+
+
+>_“Irmãos, sede **imitadores** meus e observai os que assim se comportam segundo o **modelo** que tendes em nós”_ (Filipenses 3:17)
+
+>_“Ninguém despreze a tua mocidade; mas sê o **exemplo** dos fiéis, na palavra, no procedimento, no amor, na fé, na pureza”_ (1 Timóteo 4:12).
+
+Como um homem exemplar, talvez você não se perceba nos holofotes, mas os olhos estão sim voltados para você. Alguém está vigiando cada passo que você dá. Mesmo que seja uma única pessoa, ela é mais importante do que o mundo inteiro.
+
+Muito se ouve falar sobre grandes ministérios evangélisticos em estádios, na televisão e na internet. Mas a verdade é que a maioria das pessoas vem a Cristo e crescem através da influência de um relacionamento pessoal e de um discipulado duradouro.
+
+Aqueles que você lidera, com quem você trabalha, podem estar te observando e aprendendo lições preciosas com vocẽ agora mesmo, apenas observando como você se comporta.
+
+
+Deus está te chamando para ser visto e observado. Você está disposto a isso?
+
+## 3.1. Nossa maneira de falar
+
+> _"Se alguém não tropeça no falar, este é homem perfeito, capaz de refrear também todo o corpo."_ (Tiago 3:2)
+
+Controle sua língua e você poderá controlar todo o seu corpo.
+
+As pessoas observam como você trata o garçom em um restaurante, o frentista no posto, o caixa no mercado ou o porteiro do prédio. As palavras que você diz para sua esposa, seus filhos, seus funcionários ou um vendedor em uma loja se tornam a medida de sua espiritualidade para muitas pessoas.
+
+> _"A língua tem o poder sobre a vida e sobre a morte."_ (Provérbios 18:21a)
+
+Somente o Espírito Santo pode controlar a língua. Peça a Ele para te ajudar a controlar suas palavras.
+
+Da próxima vez que você estiver prestes a descontar sua raiva em alguém com palavras, repita para si mesmo: _"Eu sou um modelo."_
+
+## 3.2 Nossa maneira de agir
+
+Ordem é de Deus. Satanás promove caos, anarquia e confusão. Jesus veio restaurar paz, ordem e produtividade ao mundo.
+
+Somos confrontados com regulamentos, regras, políticas e procedimentos em todas as áreas de nossas vidas. Alguma coisa dentro de nós quer se rebelar contra isso. Mas quando Jesus entra em nossas vidas, nosso modo de agir muda.
+
+**Algumas dicas práticas:**
+
+- **No trânsito:** respeite a velocidade e as leis de trânsito, não seja agressivo piscando o farol, buzinando ou fazendo gestos agressivos ou cara feia.
+- **Na sua casa:** mantenha a grama aparada e o quintal limpo. Mantenha sua garagem organizada, suas ferramentas no lugar. Estabaleça um lugar para cada coisa e as coloque ali. Doe aquilo que você não usa.
+- **Seu carro:** você pode até ter um carro mais antigo, mas mantenha-o limpo e sem sujeiras. Nunca se sabe quando você terá que dar uma carona a alguém.
+- **Suas finanças:** faça uma planilha controle de gastos, agende o pagamento de suas contas e as pague em dia.
+- **Seja pontual:** não se atrase para os compromissos. Se você chega atrasado com frequência, as pessoas vão perceber que não podem contar com você.
+- **Planeje:** seu dia na noite anterior, sua semana no domingo anterior e seu mês no final do mês anterior.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Pense sobre o seu círculo de influência. **Quem são as pessoas para quem Deus está chamando você para ser um exemplo?**
+2. Controlar a sua língua e as suas emoções sem sempre é fácil. **Quais são as situações em que você tem mais dificuldade em se controlar?**
+3. Num mundo cheio de rebelião, seguir as regras o tempo todo é difícil. **Qual é a regra que mais desafia você?**
+4. Ordem vem de Deus. **Se uma inspeção fosse feita em sua casa, carro ou escritório o que veriam sobre você? Qual área você irá colocarm em ordem primeiro?**
+
+---
 
 Nosso Cônjuge
 Lembre-se de que a família é o modelo do reino de Deus. Ele estabeleceu uma ordem divina em 1 Coríntios 11:3, “Quero, porém, que saibam que Cristo é o cabeça de todo homem, e o homem é o cabeça da mulher, e Deus é o cabeça de Cristo.”
