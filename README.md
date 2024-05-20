@@ -280,9 +280,96 @@ Somos confrontados com regulamentos, regras, políticas e procedimentos em todas
 3. Num mundo cheio de rebelião, seguir as regras o tempo todo é difícil. **Qual é a regra que mais desafia você?**
 4. Ordem vem de Deus. **Se uma inspeção fosse feita em sua casa, carro ou escritório o que veriam sobre você? Qual área você irá colocarm em ordem primeiro?**
 
+
+# 4. O RITMO DA GRAÇA
+
+> _"Livremo-nos de tudo o que nos atrapalha e do pecado que nos envolve, e corramos com perseverança a corrida que nos é proposta."_ (Hebreus 12:1)
+
+Não estamos numa corrida de velocidade, mas numa corrida de **resistência**. A vida cristã é uma **maratona**, não um _sprint_. É sobre percorrer a distância toda e terminar forte na vida.
+
+As pessoas ao nosso redor precisam ver **consistência** a longo prazo em nós. Precisam ver que podemos resistir às tempestades, às mudanças e aos caprichos da cultura com um caráter fixo e imutável.
+
+Precisamos também do entedimento que estamos numa corrida. Existe uma meta, uma linha final. E existem coisas que podem nos impedir de correr bem. Assim como maratonistas se desfazem de qualquer peso extra, precisamos nos livrar de tudo o que nos impede de correr nossa corrida.
+
+Também precisamos compreender que estamos em uma maratona, não numa corrida de cem metros. Precisamos de **perseverança** e **ritmo**.
+
+Muitos homens operando com energia e adrenalina ou invés de propósito e ritmo. Isso parece bom no início, mas não é sustentável a longo prazo.
+
+## Moisés e o ritmo da graça
+
+Veja o que o sogro de Moisés, Jetro, disse a ele:
+
+> _"O que você está fazendo não é bom. Você e o povo que o acompanha certamente **desgastarão**, pois este trabalho é pesado demais para você; você não pode fazê-lo sozinho."_ (Êxodo 18:17-18)
+
+Jetro aconselhou Moisés a **delegar**. Ele disse a Moisés para escolher homens capazes e confiáveis e colocá-los como líderes sobre o povo. Moisés deveria lidar apenas com os casos mais difíceis.
+
+> _"Se você fizer isso, e Deus assim o ordenar, poderá **sustentar** a pressão, e todo este povo chegará ao seu lugar em paz."_ (Êxodo 18:23)
+
+Vamos verificar algumas áreas de nossa vida onde precisamos manter o ritmo da graça.
+
+## 4.1 Seu jugo
+
+Jesus disse:
+
+> _"Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Tomem sobre vocês o meu jugo e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois o meu jugo é suave e o meu fardo é leve."_ (Mateus 11:28-30)
+
+O jugo de Jesus é fácil e leve. Ele não nos sobrecarrega com regras e regulamentos. Ele nos dá liberdade e descanso.
+
+1. **O jugo é Dele:** Não trabalhamos _para_ Ele, trabalhamos _com_ Ele.
+1. **O jugo é o meu ego:** quando somos manos e humildes, não lutamos para sermos destacados e aplaudidos.
+
+Permanecer é "operar em capacidade máxima num estado tranquilo de fé".
+
+Deus espera que trabalhemos duro e não tenhamos preguiça. No entanto. Ele espera que permaneçamos relaxados interiormente, entregando as pressões e o estresse do sucesso ao permanecermos Nele.
+
+## 4.2 Seus círculos de pessoas mais chegadas
+
+O ritmo da graça tem a ver com priorizar os relacionamentos em sua vida.
+
+Jesus dedicou a maior parte de seu tempo às pessoas mais próximas a Ele. Primeiro, estavam os três discípulos mais próximos: Pedro, Tiago e João. Depois vinha o grupo completo dos doze discípulos. Depois disso, vinham os setenta que Ele enviou para fazer o ministério.
+
+Ele derramou a maior parte de Seu tempo e energia em preparar os líderes poderosos que mudariam o mundo.
+
+Organize sua vida como um alvo, da seguinte forma:
+
+1. **Sua esposa:** ela é sua prioridade número um.
+1. **Seus filhos:** eles são o seu legado.
+1. **Seus filhos espirtuais:** aqueles que você está discipulando.
+
+Analise cada grupo ou relacionamentos que vocẽ possui em termos dos propósitos de Deus para sua vida e não da influência que te proporcionam.
+
+## 4.3 Seu dinheiro
+
+A pressão financeira consome você, estressa você durante a noite e nunca sai da sua mente. Há uma palavra que imediatamente tirará essa pressão de você: **margens**.
+
+Dinheiro é sobre margens. Defina certas diretrizes para si mesmo:
+
+1. **Siga a regra 10/10/80:** Dízimo de 10%, poupança de 10% e viva com 80%.
+1. **Estabeleça um orçamento de 90%:** Defina seus gastos em 90% da sua renda do ano anterior.
+1. **Viva com menos do que você ganha:** Geralmente, um estilo de vida extravagante é um sinal de insegurança interior. Se você precisa de coisas para se sentir bem consigo mesmo, ou para mostrar aos outros, você tem um problema.
+
+## 4.4 Suas oportunidades
+
+Há coisas na vida que parecem ter sido enviadas por Deus, mas que na verdade são armadilhas de Satanás para nos distrair e nos desviar do caminho.
+
+A questão sempre é: Deus enviou essa oportunidade ou Satanás a enviou para esgotar seus recursos, pessoal e energia? Ela irá ajudar você a alcançar seus objetivos ou irá distraí-lo deles, enquanto suga as suas energias?
+
+Momento certo é algo crítico em oportunidades. Deus pode lhe dizendo para fazer algo mas não nesse momento.
+
+> _"O meu tempo ainda não chegou, mas o tempo de vocês está sempre pronto."_ (João 7:6)
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Que atitudes você pode tomar para viver uma vida menos estressante, enquanto cumpre o propósito de Deus para sua vida?
+2. Quem você define como seus círculos de pessoas mais chegadas? Comk que frequência você mantém contato com eles?
+3. Que margens você tem estabelecido em sua vida financeira? Como você pode melhorar essas margens?
+4. Como você pode discernir entre uma oportunidade enviada por Deus e uma armadilha de Satanás? O que você pode fazer para garantir que está seguindo as oportunidades certas?
+
+
+
 ---
 
-Nosso Cônjuge
+<!-- Nosso Cônjuge
 Lembre-se de que a família é o modelo do reino de Deus. Ele estabeleceu uma ordem divina em 1 Coríntios 11:3, “Quero, porém, que saibam que Cristo é o cabeça de todo homem, e o homem é o cabeça da mulher, e Deus é o cabeça de Cristo.”
 
 O marido deve ser o provedor, sacerdote e protetor de sua família. Seu amor por eles o faz colocá-los à frente de si mesmo, de seu ego, de seus interesses narcisistas e de seus hobbies. Ele vive por eles. O modelo do marido é Cristo, conforme observado em Efésios 5:25, “Maridos, amai vossas esposas, assim como Cristo amou a igreja e entregou-se por ela.”
@@ -338,7 +425,7 @@ Uma segunda disciplina para sua agenda é quanto você trabalha toda semana. Ten
 
 Um dos pecados mais negligenciados é o trabalho em excesso. Precisamos desacelerar.
 
-Vamos manter este ritmo juntos. Vamos permanecer no ritmo da graça.
+Vamos manter este ritmo juntos. Vamos permanecer no ritmo da graça. -->
 
 # REFERÊNCIAS
 
