@@ -366,6 +366,74 @@ Momento certo é algo crítico em oportunidades. Deus pode lhe dizendo para faze
 4. Como você pode discernir entre uma oportunidade enviada por Deus e uma armadilha de Satanás? O que você pode fazer para garantir que está seguindo as oportunidades certas?
 
 
+# 5. PODER SOBRE SI MESMO
+
+> _"Se alguém deseja vir após mim, negue-se a si mesmo, tome a sua cruz **diariamente** e siga-me."_ (Lucas 9:23)
+
+O quinto componente crítico do ritmo da graça é uma área por si só: **disciplina**. Ritmo é tudo sobre disciplina. **Você é quem você é por causa da programação diária que manteve.**
+
+Anos atrás, Charles Hummel escreveu _"Tirania do Urgente"_ e aponta como frequentemente caímos na armadilha de deixar as coisas **urgentes** na vida tomar o lugar das coisas **importantes**.
+
+## 5.1. Sua agenda devocional (diária)
+
+Mantenha uma agenda devocional diária. Somos ocupados demais para não orar. A oração não **desperdiça** seu tempo, ela **economiza** seu tempo. É preciso parar para afiar o machado.
+
+Uma boa estratégia é separar um tempo logo cedo, enquanto a casa ainda está em silêncio, você está relaxado e os compromissos do dia ainda não começaram. Se você não tem esse tempo, encontre um lugar tranquilo durante o dia.
+
+Existem vários métodos e formatos para a oração e seu tempo de devocional:
+
+- Oração do tabernáculo
+- Oração do Pai Nosso
+- ACASI (adoração, confissão, agradecimento, súplica, intercessão)
+- Planos de leiutra da bíblica diária
+- Devocionais diários
+
+## 5.2. Sua agenda de trabalho (semanal)
+
+Procure estabelecer um limite para seu tempo de trabalho semanal. Isso inclui **o tempo que você passa longe de sua família**, como no escritório, em reuniões, em viagens de negócios e em eventos de *networking*. São as responsabilidades que você assume fora de casa.
+
+Tenha também pelo menos um dia de descanso por semana, embora o ideal sejam dois, pois sempre surgem imprevistos. Isso é um mandamento de Deus. Se você não descansar, seu corpo e sua mente irão falhar. Esse é um dia separado para adoração a Deus, mas também para estar com sua família e com aqueles que você ama.
+
+## 5.3. Sua agenda espiritual (mensal)
+
+Estabeleça um tempo mensal para **retiros espirituais**. Isso pode ser um dia inteiro, um fim de semana. É um tempo para se afastar de tudo e se concentrar em Deus. Talvez não seja fácil na primeira vista, mas procure se planejar e encontrar essa oportunidade. Nesse período, você pode fazer jejum, orar, ler a Bíblia, meditar e ouvir a Deus.
+Além de retiros, você pode também planejar jejuns semanais, mensais ou trimestrais.
+
+## 5.4. Sua agenda de férias (anual)
+
+Estabeleça um tempo no final do ano e início do próximo para buscar direção de Deus para o próximo ano. Inclua um tempo de jejum e oração, um tempo para ouvir a Deus e para planejar o próximo ano.
+
+Você também pode separar alguns livros para ler durante esse período, pensando em sua vida espiritual e em seu crescimento pessoal.
+
+## 5.5 A agenda da sua família
+
+1. **Noite da família:** Estabeleça um tempo semanal para **noite de família**. Isso é um tempo para se divertir, rir, brincar, conversar e se conectar com sua família.
+2. **Noite romântica:** não importa o tempo que vocês são casados, você ainda precisa ser romântico com sua esposa. Ela merece um tempo fora de casa, um jantar romântico, um filme, um passeio no parque, um piquenique, enfim, aquilo que ela preferir e vocês puderem fazer juntos.
+3. **Férias em família:** Estabeleça um tempo anual para **férias em família**. Isso é um tempo para se reconectar com sua família, para se divertir, para relaxar e para criar memórias juntos. Isso pode incluir ir para a praia, acampar, conhecer lugares novos, etc.
+
+
+## 5.5 A agenda da sua saúde
+
+Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
+
+1. **Descanso:** Quanto mais cedo você for dormir, melhor será o seu sono. Se possível, tentem ir dormir e acordar juntos. Evite ficar acordado até tarde, assaltando a geladeira, assistindo TV ou mexendo no celular.
+2. **Exercícios:** Estabeleça uma rotina diária de exercícios físicos. Isso pode ser uma caminhada, uma corrida, uma ida à academia, um esporte, etc. O importante é encontrar algo que você goste e que possa fazer regularmente.
+3. **Alimentação:** Coma mais cedo. Estabeleça uma rotina de alimentação saudável. Isso inclui evitar fast-food, refrigerantes, doces, frituras, etc. Procure comer mais frutas, verduras, legumes, grãos, proteínas e beber bastante água. Não faça um plano drástico de perda de peso. Simplesmente discipline-se a comer em horários regulares com porções razoáveis de alimento saudável.
+
+É isso, uma transformação radical no estilo de vida, passando por todas as áreas de sua vida, de forma a estabelecer um ritmo de graça que te permita correr a corrida da vida com perseverança e resistência. Nada disso vai lhe custar muito dinheiro, apenas tempo em sua agenda e hábitos regulares e sustentáveis.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. **O que tem funcionado para vocẽ em termos de rotina diária de oração e leitura da Bíblia?**
+2. Equilibrar familia e trabalho é um desafio. **Quais limites você tem para si mesmo sobre o quanto trabalha?**
+3. Fale sobre sua noite em família e noite romântica. **O que você pode fazer para melhorar esses momentos?**
+4. Saúde é baseada em comer bem, dormir bem e se exercitar. **Qual destas três áreas tem sido o seu maior desafio?**
+
+
+
+
+
+
 
 ---
 
