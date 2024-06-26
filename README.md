@@ -430,6 +430,30 @@ Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
 4. Saúde é baseada em comer bem, dormir bem e se exercitar. **Qual destas três áreas tem sido o seu maior desafio?**
 
 
+# 6. VIVENDO UMA VIDA DE PROPÓSITO
+
+> _"Se tão somente puder terminar a corrida ... que Deus **me** confiou..."_ (Atos 20:24)
+
+> _"Porque somos feitura dele, criados em Cristo Jesus **para boas obras**..."_ (Efésios 2:10)
+
+
+Atividades sem propósito tornam a vida sem sentido, chata e depressiva.
+
+## 6.1 O próposito lhe impulsiona adiante em direção à sua missão divina
+
+O objetivo de Jesus não era prolongar a vida, mas cumprir o propósito de Deus para Sua vida.
+
+_"Eles estavam indo para Jerusalém, e Jesus ia à frente. Os discípulos estavam admirados, enquanto os que o seguiam estavam com medo."_ (Marcos 10:32a)
+
+De forma semelhante, Paulo fez o mesmo, enquanto seguia rumo à sua morte em Roma.
+
+_"Sei que em todas as cidades o Espírito Santo me avisa que prisões e sofrimentos me esperam. Todavia, não me importo, nem considero a minha vida de valor algum para mim mesmo, se tão somente puder terminar a corrida e completar o ministério que o Senhor Jesus **me** confiou, de testemunhar do evangelho da graça de Deus."_ (Atos 20:23-24)
+
+Todos os líderes da igreja primitiva morreram com um propósito, começando com Estevão e terminando com João. Eles viveram e morreram pelos outros, procurando influenciar as pessoas com o evangelho de Jesus Cristo.
+
+## 6.2 Propósito tem a ver com prioridades
+
+
 
 
 
