@@ -35,7 +35,7 @@ Hoje, mais do que nunca, precisamos de **homens exemplares** que se destaquem do
 
 Pare de se preocupar com o que acontece nos altos escalões dos governos. Mude a si mesmo. Chegue cedo no trabalho e não perca o controle se o carro não funcionar!
 
-Pare de buscar prazer a todo custo e de se envolver em relacionamentos questionáveis.  Prefira perder um negócio do que mentir, omitir a verdade ou deixar de fora um fato essencial. É hora dos pais chegarem cedo em casa e colocarem seus filhos em primeiro lugar.
+Pare de buscar prazer a todo custo e de se envolver em relacionamentos questionáveis.  Prefira perder um negócio do que mentir, omitir a verdade ou deixar de fora um fato essencial. É hora de colocar a Deus em primeiro lugar e priorizar àqueles que você ama.
 
 Podemos choramingar e reclamar de nosso país, mas nada será capaz de parar um exército de homens honestos, honráveis e santos.
 
@@ -88,7 +88,7 @@ Por que o oficial de justiça pede que você faça o seguinte juramento no tribu
 - Se **retenho** informações essenciais, que muda a percepção das pessoas, estou mentindo.
 - Se eu **aumento** as capacidades de um produto, ou exagero as minhas habilidades, estou mentindo.
 
-Se você é casado, sua sinceridade deve começar com sua esposa. Mesmo que você tenha errado e esteja envergonhado, você nunca deve mentir para sua esposa. A força do seu relacionamento deve ser construída na confiança mútua e isso começa dizendo a verdade um para o outro.
+Se você é casado, sua sinceridade deve começar com sua esposa. Em qualquer caso, você deve abrir seu coração com seu discipulador ou um irmão de confinaça. Mesmo que você tenha errado e esteja envergonhado, você nunca deve mentir. A força do seus relacionamentos deve ser construída na confiança mútua e isso começa dizendo a verdade um para o outro.
 
 No trabalho, encare seus fracassos e fraquezas sem culpar os outros ou manipular para salvar a própria imagem. Você diz: _"Eu estraguei tudo."_ Seu chefe pensa: “_Finalmente, alguém em quem posso confiar! Vou encontrar uma maneira de colocá-lo em uma posição de maior responsabilidade._”
 
@@ -147,7 +147,7 @@ O plano de Satanás é “roubar, matar e destruir” (João 10:10). Ele até tr
 
 Um homem pode caminhar puro, mas isso não acontece por acaso. Se vocẽ quer mesmo vencer essa luta, terá que estabelecer limites e levantar muros para manter o inimigo do lado de fora.
 
-## 2.1 Prestação de contas
+## 2.1 Não caminhe só
 
 Alguém disse uma vez: _“Todos nós fazemos melhor quando estamos sendo observados.”_
 
@@ -171,19 +171,21 @@ _"Ok, e quanto à liberdade?"_
 
 ## 2.2. Compatibilidade
 
+**Essas dicas servem se você é casado.** Se você é solteiro, busque a santidade e a pureza sexual. Procure irmãos de confiança para caminhar com você. E se você quer se casar, ore e busque a Deus por uma esposa que seja temente a Deus.
+
 Se o relacionamento do seu casamento é profundo e íntimo, você terá quase zero desejo por outra mulher.
 
 Algumas dicas práticas:
 
-**Mantenha uma vida sexual saudável.**
+**a. Mantenha uma vida sexual saudável.**
 
 Isso inclui contato sexual regular, romântico e recompensador. Se vocês estão tendo problemas, procure ajuda.
 
-**Reconecte-se romanticamente.**
+**b. Reconecte-se romanticamente.**
 
 Compartihem as noites juntos, conversando, assistindo a um filme ou série que gostem, depois que os filhos estiverem dormindo. Faça com que sua rotina conduza à diversão e relacionamento íntimo antes de dormir. Vá para a cama em um horário adequado, sem os celulares. Esses pequenos passos podem salvar seu casamento e prevenir a destruição de seu exemplo espiritual.
 
-**Proteja sua esposa.**
+**c. Proteja sua esposa.**
 
 Seja sensível ao seu estado emocional e desafios que esteja enfrentando. Nunca a coloque em uma posição em que possa ser tentada por outro homem.
 
@@ -218,7 +220,7 @@ Essa prática constante tem o poder de te conectar ao Espírito Santo.
 
 ## QUESTÕES PARA DISCUSSÃO
 
-1. **Você tem alguém com quem presta contas?** Se não, quem você pode convidar para ser seu parceiro de prestação de contas?
+1. **Você tem alguém que cobre a sua vida?** Se não, quem você pode convidar para ser seu parceiro de caminhada e te dar cobertura?
 2. Que sistemas ou muros deproteção você tem estabelecido para vencer as tentações? **Quais desses sistemas você precisa fortalecer?**
 3. A regra número um de Billy Graham era "Nunca fique sozinho com uma mulher que não seja sua esposa." Você enfrenta situações em que terá de aplicar essa regra? **Como você pode se proteger nessas situações?**
 4. Se você é casado, ter compatibilidade sexual com sua esposa pode impedir muita tentação. Quais saõ seus maiores desafios para manter a intimidade sexual nessemundo corrido e estressante?
@@ -267,7 +269,11 @@ Somos confrontados com regulamentos, regras, políticas e procedimentos em todas
 **Algumas dicas práticas:**
 
 - **No trânsito:** respeite a velocidade e as leis de trânsito, não seja agressivo piscando o farol, buzinando ou fazendo gestos agressivos ou cara feia.
-- **Na sua casa:** mantenha a grama aparada e o quintal limpo. Mantenha sua garagem organizada, suas ferramentas no lugar. Estabaleça um lugar para cada coisa e as coloque ali. Doe aquilo que você não usa.
+- **Na sua casa:** Seja limpo e organizado em tudo o que você fizer. Por exemplo:
+  - Mantenha a grama aparada e o quintal limpo.
+  - Mantenha sua garagem organizada, suas ferramentas no lugar.
+  - Estabaleça um lugar para cada coisa e as coloque ali.
+  - Doe aquilo que você não usa.
 - **Seu carro:** você pode até ter um carro mais antigo, mas mantenha-o limpo e sem sujeiras. Nunca se sabe quando você terá que dar uma carona a alguém.
 - **Suas finanças:** faça uma planilha controle de gastos, agende o pagamento de suas contas e as pague em dia.
 - **Seja pontual:** não se atrase para os compromissos. Se você chega atrasado com frequência, as pessoas vão perceber que não podem contar com você.
@@ -316,7 +322,7 @@ Jesus disse:
 O jugo de Jesus é fácil e leve. Ele não nos sobrecarrega com regras e regulamentos. Ele nos dá liberdade e descanso.
 
 1. **O jugo é Dele:** Não trabalhamos _para_ Ele, trabalhamos _com_ Ele.
-1. **O jugo é o meu ego:** quando somos manos e humildes, não lutamos para sermos destacados e aplaudidos.
+1. **O jugo é o meu ego:** quando somos mansos e humildes, não lutamos para sermos destacados e aplaudidos.
 
 Permanecer é "operar em capacidade máxima num estado tranquilo de fé".
 
@@ -332,8 +338,9 @@ Ele derramou a maior parte de Seu tempo e energia em preparar os líderes podero
 
 Organize sua vida como um alvo, da seguinte forma:
 
-1. **Sua esposa:** ela é sua prioridade número um.
-1. **Seus filhos:** eles são o seu legado.
+1. **Deus:** Ele é o primeiro e está acima de tudo.
+1. **Sua esposa:** depois de Deus, se você é casado, ela é sua prioridade número um.
+1. **Seus filhos:** se você tem filhos, lembre-se de que eles são seu legado, sua herança.
 1. **Seus filhos espirtuais:** aqueles que você está discipulando.
 
 Analise cada grupo ou relacionamentos que vocẽ possui em termos dos propósitos de Deus para sua vida e não da influência que te proporcionam.
@@ -380,17 +387,17 @@ Mantenha uma agenda devocional diária. Somos ocupados demais para não orar. A 
 
 Uma boa estratégia é separar um tempo logo cedo, enquanto a casa ainda está em silêncio, você está relaxado e os compromissos do dia ainda não começaram. Se você não tem esse tempo, encontre um lugar tranquilo durante o dia.
 
-Existem vários métodos e formatos para a oração e seu tempo de devocional:
+Existem vários métodos e formatos para a oração e seu tempo de devocional. Voce pode adotar um ou mais desses métodos, ou criar o seu próprio:
 
-- Oração do tabernáculo
-- Oração do Pai Nosso
+- Oração do tabernáculo (que passa por cada parte do tabernáculo, e seus utensílios)
+- Oração do Pai Nosso (utilizar cada parte da oração como um modelo de oração)
 - ACASI (adoração, confissão, agradecimento, súplica, intercessão)
-- Planos de leiutra da bíblica diária
-- Devocionais diários
+- Planos de leitura bíblica diária (como o plano de leitura bíblica anual da Comunidade Siloé)
+- Devocionais diários (como o Pão Diário, Glorify, e outros)
 
 ## 5.2. Sua agenda de trabalho (semanal)
 
-Procure estabelecer um limite para seu tempo de trabalho semanal. Isso inclui **o tempo que você passa longe de sua família**, como no escritório, em reuniões, em viagens de negócios e em eventos de *networking*. São as responsabilidades que você assume fora de casa.
+Procure estabelecer um limite para seu tempo de trabalho semanal. Isso inclui **todo o tempo que você passa longe de sua família (se for casado) ou de casa (se mora sozinho)**, como no escritório, em reuniões, em viagens de negócios e em eventos de *networking*. São as responsabilidades que você assume fora de casa.
 
 Tenha também pelo menos um dia de descanso por semana, embora o ideal sejam dois, pois sempre surgem imprevistos. Isso é um mandamento de Deus. Se você não descansar, seu corpo e sua mente irão falhar. Esse é um dia separado para adoração a Deus, mas também para estar com sua família e com aqueles que você ama.
 
@@ -407,18 +414,25 @@ Você também pode separar alguns livros para ler durante esse período, pensand
 
 ## 5.5 A agenda da sua família
 
-1. **Noite da família:** Estabeleça um tempo semanal para **noite de família**. Isso é um tempo para se divertir, rir, brincar, conversar e se conectar com sua família.
-2. **Noite romântica:** não importa o tempo que vocês são casados, você ainda precisa ser romântico com sua esposa. Ela merece um tempo fora de casa, um jantar romântico, um filme, um passeio no parque, um piquenique, enfim, aquilo que ela preferir e vocês puderem fazer juntos.
-3. **Férias em família:** Estabeleça um tempo anual para **férias em família**. Isso é um tempo para se reconectar com sua família, para se divertir, para relaxar e para criar memórias juntos. Isso pode incluir ir para a praia, acampar, conhecer lugares novos, etc.
+Se você é **casado** e tem **filhos**, é importante estabelecer um tempo regular para sua família. Aqui estão algumas sugestões:
 
+1. **Noite da família:** Estabeleça um tempo semanal para **noite de família**. Isso é um tempo para se divertir, rir, brincar, conversar e se conectar com sua família.
+2. **Noite romântica:** não importa o tempo que vocês são casados, você ainda precisa ser romântico com sua esposa. Ela merece um tempo fora de casa, um jantar romântico, um filme, um passeio no parque, um piquenique, enfim, aquilo que ela preferir e vocês puderem fazer juntos. Não precisa ser nada caro ou sofisticado, apenas algo que vocês gostem de fazer juntos.
+3. **Férias em família:** Estabeleça um tempo anual para **férias em família**. Isso é um tempo para se reconectar com sua família, para se divertir, para relaxar e para criar memórias juntos. Isso pode incluir ir para a praia, acampar, conhecer lugares novos, etc. Tentem organizar as suas agendas para ter esse tempo juntos.
+
+Se você é **solteiro**, se envolva nas atividades da igreja e busque tempo ao longo da semana com outros irmãos solteiros. Vocês podem também combinar de passar as férias juntos.
 
 ## 5.5 A agenda da sua saúde
 
 Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
 
-1. **Descanso:** Quanto mais cedo você for dormir, melhor será o seu sono. Se possível, tentem ir dormir e acordar juntos. Evite ficar acordado até tarde, assaltando a geladeira, assistindo TV ou mexendo no celular.
+1. **Descanso:** Quanto mais cedo você for dormir, melhor será o seu sono. O ideal é ir dormir antes das 22:00. Se for **casado**, tentem ir dormir e acordar juntos. Evite ficar acordado até tarde, assaltando a geladeira, assistindo TV ou mexendo no celular.
 2. **Exercícios:** Estabeleça uma rotina diária de exercícios físicos. Isso pode ser uma caminhada, uma corrida, uma ida à academia, um esporte, etc. O importante é encontrar algo que você goste e que possa fazer regularmente.
 3. **Alimentação:** Coma mais cedo. Estabeleça uma rotina de alimentação saudável. Isso inclui evitar fast-food, refrigerantes, doces, frituras, etc. Procure comer mais frutas, verduras, legumes, grãos, proteínas e beber bastante água. Não faça um plano drástico de perda de peso. Simplesmente discipline-se a comer em horários regulares com porções razoáveis de alimento saudável.
+
+Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuidarmos dele, não teremos energia, disposição e saúde para fazer a obra de Deus. Queremos com isso viver uma vida longa e saudável, para veros frutos do nosso trabalho e para cumprir o propósito de Deus para nossa vida.
+
+**Conclusão**
 
 É isso, uma transformação radical no estilo de vida, passando por todas as áreas de sua vida, de forma a estabelecer um ritmo de graça que te permita correr a corrida da vida com perseverança e resistência. Nada disso vai lhe custar muito dinheiro, apenas tempo em sua agenda e hábitos regulares e sustentáveis.
 
@@ -426,7 +440,7 @@ Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
 
 1. **O que tem funcionado para vocẽ em termos de rotina diária de oração e leitura da Bíblia?**
 2. Equilibrar familia e trabalho é um desafio. **Quais limites você tem para si mesmo sobre o quanto trabalha?**
-3. Fale sobre sua noite em família e noite romântica. **O que você pode fazer para melhorar esses momentos?**
+3. Fale sobre seu tempo de qualidade com família e amigos. **O que você pode fazer para melhorar esses momentos?**
 4. Saúde é baseada em comer bem, dormir bem e se exercitar. **Qual destas três áreas tem sido o seu maior desafio?**
 
 
