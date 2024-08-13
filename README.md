@@ -147,7 +147,7 @@ O plano de Satanás é “roubar, matar e destruir” (João 10:10). Ele até tr
 
 Um homem pode caminhar puro, mas isso não acontece por acaso. Se vocẽ quer mesmo vencer essa luta, terá que estabelecer limites e levantar muros para manter o inimigo do lado de fora.
 
-## 2.1 Não caminhe só
+## 2.1 NÃO CAMINHE SÓ
 
 Alguém disse uma vez: _“Todos nós fazemos melhor quando estamos sendo observados.”_
 
@@ -169,7 +169,7 @@ _"Ok, e quanto à liberdade?"_
 
 **Um trem é livre somente quando está nos trilhos.**
 
-## 2.2. Compatibilidade
+## 2.2. COMPATIBILIDADE
 
 **Essas dicas servem se você é casado.** Se você é solteiro, busque a santidade e a pureza sexual. Procure irmãos de confiança para caminhar com você. E se você quer se casar, ore e busque a Deus por uma esposa que seja temente a Deus.
 
@@ -189,7 +189,7 @@ Compartihem as noites juntos, conversando, assistindo a um filme ou série que g
 
 Seja sensível ao seu estado emocional e desafios que esteja enfrentando. Nunca a coloque em uma posição em que possa ser tentada por outro homem.
 
-## 2.3 Confiabilidade
+## 2.3 CONFIABILIDADE
 
 Use um sistema de relações e atividades confiáveis e consistentes que você nunca perca. Sem esses sistemas no lugar, você se torna inconsistente e mais vulnerável a oscilações de humor, tentações de fim de semana e pontos baixos onde suas fraquezas podem assumir o controle de suas intenções.
 
@@ -246,7 +246,7 @@ Aqueles que você lidera, com quem você trabalha, podem estar te observando e a
 
 Deus está te chamando para ser visto e observado. Você está disposto a isso?
 
-## 3.1. Nossa maneira de falar
+## 3.1 NOSSA MANEIRA DE FALAR
 
 > _"Se alguém não tropeça no falar, este é homem perfeito, capaz de refrear também todo o corpo."_ (Tiago 3:2)
 
@@ -260,7 +260,7 @@ Somente o Espírito Santo pode controlar a língua. Peça a Ele para te ajudar a
 
 Da próxima vez que você estiver prestes a descontar sua raiva em alguém com palavras, repita para si mesmo: _"Eu sou um modelo."_
 
-## 3.2 Nossa maneira de agir
+## 3.2 NOSSA MANEIRA DE AGIR
 
 Ordem é de Deus. Satanás promove caos, anarquia e confusão. Jesus veio restaurar paz, ordem e produtividade ao mundo.
 
@@ -301,7 +301,7 @@ Também precisamos compreender que estamos em uma maratona, não numa corrida de
 
 Muitos homens operando com energia e adrenalina ou invés de propósito e ritmo. Isso parece bom no início, mas não é sustentável a longo prazo.
 
-## Moisés e o ritmo da graça
+## 4.1 MOISÉS E O SEU RITMO DA GRAÇA
 
 Veja o que o sogro de Moisés, Jetro, disse a ele:
 
@@ -311,9 +311,11 @@ Jetro aconselhou Moisés a **delegar**. Ele disse a Moisés para escolher homens
 
 > _"Se você fizer isso, e Deus assim o ordenar, poderá **sustentar** a pressão, e todo este povo chegará ao seu lugar em paz."_ (Êxodo 18:23)
 
+## 4.2 ÁREAS DE NOSSA VIDA EM QUE PRECISAMOS MANTER O RITMO DA GRAÇA
+
 Vamos verificar algumas áreas de nossa vida onde precisamos manter o ritmo da graça.
 
-## 4.1 Seu jugo
+### SEU JUGO
 
 Jesus disse:
 
@@ -328,7 +330,7 @@ Permanecer é "operar em capacidade máxima num estado tranquilo de fé".
 
 Deus espera que trabalhemos duro e não tenhamos preguiça. No entanto. Ele espera que permaneçamos relaxados interiormente, entregando as pressões e o estresse do sucesso ao permanecermos Nele.
 
-## 4.2 Seus círculos de pessoas mais chegadas
+### SEUS CÍRCULOS DE PESSOAS MAIS CHEGADAS
 
 O ritmo da graça tem a ver com priorizar os relacionamentos em sua vida.
 
@@ -345,7 +347,7 @@ Organize sua vida como um alvo, da seguinte forma:
 
 Analise cada grupo ou relacionamentos que vocẽ possui em termos dos propósitos de Deus para sua vida e não da influência que te proporcionam.
 
-## 4.3 Seu dinheiro
+### SEU DINHEIRO
 
 A pressão financeira consome você, estressa você durante a noite e nunca sai da sua mente. Há uma palavra que imediatamente tirará essa pressão de você: **margens**.
 
@@ -355,7 +357,7 @@ Dinheiro é sobre margens. Defina certas diretrizes para si mesmo:
 1. **Estabeleça um orçamento de 90%:** Defina seus gastos em 90% da sua renda do ano anterior.
 1. **Viva com menos do que você ganha:** Geralmente, um estilo de vida extravagante é um sinal de insegurança interior. Se você precisa de coisas para se sentir bem consigo mesmo, ou para mostrar aos outros, você tem um problema.
 
-## 4.4 Suas oportunidades
+### SUAS OPORTUNIDADES
 
 Há coisas na vida que parecem ter sido enviadas por Deus, mas que na verdade são armadilhas de Satanás para nos distrair e nos desviar do caminho.
 
@@ -381,7 +383,7 @@ O quinto componente crítico do ritmo da graça é uma área por si só: **disci
 
 Anos atrás, Charles Hummel escreveu _"Tirania do Urgente"_ e aponta como frequentemente caímos na armadilha de deixar as coisas **urgentes** na vida tomar o lugar das coisas **importantes**.
 
-## 5.1. Sua agenda devocional (diária)
+## 5.1 SUA AGENDA DEVOCIONAL (DIÁRIA)
 
 Mantenha uma agenda devocional diária. Somos ocupados demais para não orar. A oração não **desperdiça** seu tempo, ela **economiza** seu tempo. É preciso parar para afiar o machado.
 
@@ -395,24 +397,24 @@ Existem vários métodos e formatos para a oração e seu tempo de devocional. V
 - Planos de leitura bíblica diária (como o plano de leitura bíblica anual da Comunidade Siloé)
 - Devocionais diários (como o Pão Diário, Glorify, e outros)
 
-## 5.2. Sua agenda de trabalho (semanal)
+## 5.2 SUA AGENDA DE TRABALHO (SEMANAL)
 
 Procure estabelecer um limite para seu tempo de trabalho semanal. Isso inclui **todo o tempo que você passa longe de sua família (se for casado) ou de casa (se mora sozinho)**, como no escritório, em reuniões, em viagens de negócios e em eventos de *networking*. São as responsabilidades que você assume fora de casa.
 
 Tenha também pelo menos um dia de descanso por semana, embora o ideal sejam dois, pois sempre surgem imprevistos. Isso é um mandamento de Deus. Se você não descansar, seu corpo e sua mente irão falhar. Esse é um dia separado para adoração a Deus, mas também para estar com sua família e com aqueles que você ama.
 
-## 5.3. Sua agenda espiritual (mensal)
+## 5.3 SUA AGENDA ESPIRITUAL (MENSAL)
 
 Estabeleça um tempo mensal para **retiros espirituais**. Isso pode ser um dia inteiro, um fim de semana. É um tempo para se afastar de tudo e se concentrar em Deus. Talvez não seja fácil na primeira vista, mas procure se planejar e encontrar essa oportunidade. Nesse período, você pode fazer jejum, orar, ler a Bíblia, meditar e ouvir a Deus.
 Além de retiros, você pode também planejar jejuns semanais, mensais ou trimestrais.
 
-## 5.4. Sua agenda de férias (anual)
+## 5.4 SUA AGENDA DE FÉRIAS (ANUAL)
 
 Estabeleça um tempo no final do ano e início do próximo para buscar direção de Deus para o próximo ano. Inclua um tempo de jejum e oração, um tempo para ouvir a Deus e para planejar o próximo ano.
 
 Você também pode separar alguns livros para ler durante esse período, pensando em sua vida espiritual e em seu crescimento pessoal.
 
-## 5.5 A agenda da sua família
+## 5.5 A AGENDA DA SUA FAMÍLIA
 
 Se você é **casado** e tem **filhos**, é importante estabelecer um tempo regular para sua família. Aqui estão algumas sugestões:
 
@@ -422,7 +424,7 @@ Se você é **casado** e tem **filhos**, é importante estabelecer um tempo regu
 
 Se você é **solteiro**, se envolva nas atividades da igreja e busque tempo ao longo da semana com outros irmãos solteiros. Vocês podem também combinar de passar as férias juntos.
 
-## 5.5 A agenda da sua saúde
+## 5.5 A AGENDA DA SUA SAÚDE
 
 Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
 
@@ -432,7 +434,7 @@ Sua saúde vau depender de 3 fatores: descanso, exercícios e alimentação.
 
 Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuidarmos dele, não teremos energia, disposição e saúde para fazer a obra de Deus. Queremos com isso viver uma vida longa e saudável, para veros frutos do nosso trabalho e para cumprir o propósito de Deus para nossa vida.
 
-**Conclusão**
+## CONCLUSÃO
 
 É isso, uma transformação radical no estilo de vida, passando por todas as áreas de sua vida, de forma a estabelecer um ritmo de graça que te permita correr a corrida da vida com perseverança e resistência. Nada disso vai lhe custar muito dinheiro, apenas tempo em sua agenda e hábitos regulares e sustentáveis.
 
@@ -450,12 +452,11 @@ Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuida
 
 > _"Porque somos feitura dele, criados em Cristo Jesus **para boas obras**..."_ (Efésios 2:10)
 
-
 Atividades sem propósito tornam a vida sem sentido, chata e depressiva.
 
-## 6.1 O próposito lhe impulsiona adiante em direção à sua missão divina
+## 6.1 O PROPÓSITO LHE IMPULSIONA ADIANTE EM DIREÇÃO À SUA MISSÃO DIVINA
 
-O objetivo de Jesus não era prolongar a vida, mas cumprir o propósito de Deus para Sua vida.
+**O objetivo de Jesus não era prolongar a vida, mas cumprir o propósito de Deus para Sua vida.**
 
 _"Eles estavam indo para Jerusalém, e Jesus ia à frente. Os discípulos estavam admirados, enquanto os que o seguiam estavam com medo."_ (Marcos 10:32a)
 
@@ -465,9 +466,89 @@ _"Sei que em todas as cidades o Espírito Santo me avisa que prisões e sofrimen
 
 Todos os líderes da igreja primitiva morreram com um propósito, começando com Estevão e terminando com João. Eles viveram e morreram pelos outros, procurando influenciar as pessoas com o evangelho de Jesus Cristo.
 
-## 6.2 Propósito tem a ver com prioridades
+**Se você estivesse no seu leito de morte, conversando com alguém sobre o que é importante na vida, o que você diria?**
+
+## 6.2 PROPOSITO TEM A VER COM PRIORIDADES
+
+Propósito tem a ver com encontrar a sua missão e permanecer fiel a ela.
+
+Podemos ilustrar as prioridades da vida através de uma ilustração de duas árvores: a **árvore da construção de influência** e a **árvore de agradar a Deus**.
+
+**a. Árvore da construção de influência**
+
+A raiz da árvore da construção de influência é a **ambição**, isso é **o desejo insaciável de agradar e ser celebrado pelos outros**.
+
+A prioridade aqui é ganhar influência através das redes sociais, redes de contatos, conferências, viagens, etc. O egoísmo impera, os fins justificam os meios.
+
+A ambição emprega táticas como persuasão, manipulação, bajulação, engano, fofoca, traição e raiva. O ambicioso vê o conflito como uma oportunidade de avançar, não como um problema a ser resolvido.
+
+**b. Árvore de agradar a Deus**
+
+Vejamos o exemplo de Jesus, Paulo e tantos outros homens de Deus. Eles viveram para agradar a Deus, não a si mesmos.
+
+Jesus disse:
+
+> _"Ele não me deixou sozinho, pois sempre faço o que lhe agrada."_ (João 8:29)
+
+No dia do seu batismo, Jesus ouviu a voz do Pai:
+
+> _"Este é o meu Filho amado, de quem me agrado."_ (Mateus 3:17)
+
+No monte da transfiguração, Ele ouviou novamente do Pai:
+
+> _"Este é o meu Filho amado, de quem me agrado. Ouçam-no!"_ (Mateus 17:5)
+
+Paulo disse:
+> _"Por isso temos o propósito de Lhe agradar."_ (2 Coríntios 5:9)
+
+Na raiz dessa linda árvore está o desejo de servir aos outros. Deus nos criou para servir aos outros. Quando vivemos para servir aos outros, nosso homem interior volta ao ritmo.  Servir é nosso estilo de vida, nosso chamado e nossa motivação. Vivemos para dar, servir e amar.
+
+Servir à sua família, aos feridos e perdidos, aos menores e aos útimos, é um propósito que nunca mudará.
+
+## 6.3 AS TRÊS PARTES DO PROPÓSITO
+
+**a. O seu mandato**
+
+**O seu mandato é algo que você morreria para conquistar.**
+
+Seu mandato não consiste em coisa passageiras como acompanhar o seu time preferido, comprar um carro novo ou melhor seu tempo na corrida.
+
+Seu mandato tem a ver com todas as pessoas que ainda não ouviram o evangelho de Jesus Cristo. Tome um mandato para a sua vida: agradar a Deus e servir aos outros.
+
+Coloque seu mandato claramente diante de seus olhos e agarre-o com toda a sua força, paixão, dinheiro, tempo, energia e influência.
+
+**b. O seu método**
+
+**De que forma Deus lhe chamou de forma particular em agradar a Ele e servir aos outros?** Planeje o seu trabalho e trabalhe de acoro com o seu plano.
 
 
+Existem muitos métodos para servir aos outros:
+
+- servir crianças e adolescentes
+- treinar pessoas para o trabalho
+- liderar grupos pequenos
+- visitar e orar pelos doentes
+- mentorear viciados em recuperação
+- ajudar os pobres e necessitados
+
+A lista é longa e variada. O importante é encontrar o seu método e se dedicar a ele.
+
+O seu mandato ditará seu método. O amor encontrará um caminho.
+
+**c. O seu dinheiro**
+
+Vocẽ usa seu dinheiro para construir influência ou para agradar a Deus e servir aos outros. Acumular mais riqueza não é um propósito de vida, mas um meio para servir mais pessoas.
+
+## CONCLUSÃO
+
+Encontre o seu propósito - o seu mandato, o seu método e o seu dinheiro. Viva para servir. Viva para agradar a Deus. Foque nas prioridades. Viva para aquilo que é eterno e você não terá arrependimentos no final da sua jornada.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Se seu neto estivesse ao seu lado no seu leito de morte, **quais prioridades você diria que ele precisa ter?**
+2. Muitos homens hoje estão subindo na árvore da ambição e da construção de influência. **Discuta o exemplo de alguém que você conhece que subiu até o topo dessa árvore e sofreu uma queda terrível de volta ao chão.**
+3. A árvore de servir e agradar a Deus é a que Jesus e Paulo passaram suas vidas subindo. **Discuta sobre como Deus libertou você de construir influência e lhe mostrou o seu propósito eterno e a satisfação em agradar a Ele.**
+4. O seu mandato, seu método e seu dinheiro acompanham sua paixão e seu propósito. **Qual você diria que é o seu mandato de vida e o que você está fazendo para cumpri-lo?**
 
 
 
