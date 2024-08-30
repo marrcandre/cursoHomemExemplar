@@ -552,7 +552,6 @@ Encontre o seu propósito - o seu mandato, o seu método e o seu dinheiro. Viva 
 
 # 7. FAZENDO SUA ESPOSA FELIZ
 
-
 > _"Igualmente vós, maridos, coabitai com elas com **entendimento**, dando **honra** à mulher, como vaso **mais fraco**; como sendo vós os seus co-herdeiros da graça da vida; para que não sejam impedidas as vossas orações."_ (1 Pedro 3:7 ACF)
 
 A respeito da mulher, Davi escreveu:
@@ -641,7 +640,16 @@ Não importa se é com membros da igreja, família, vizinhos ou mesmo com seus p
 
 Sua esposa precisa saber que você a está guardando e protegendo, e que está disposto a entregar sua vida, se necessário, para defendê-la. Faça isso e ela ficará feliz por um bom tempo.
 
+## CONCLUSÃO
 
+Se você quer ser um homem exemplar, tudo começa em casa. Se você oferecer à sua esposa segurança financeira, companheirismo, rotina, comunicação, honra, confiança e proteção, ela irá amar você pelo resto da sua vida.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Insegurança financeira é a causa de um percentual significativo de divórcios. **O que você pode fazer para garantir à sua esposa que o futuro dela está financeiramente seguro?**
+2. Você diria que fica distraído em casa, com trabalho, projetos, TV ou celular? **O que vocẽ vai fazer para melhorar a qualidade do tempo que passa com sua esposa?**
+3. Quando foi a última vez que a sua esposa lhe confrontou sobre o seu caráter ou comportamento? **Como você reagiu?**
+4. A sua esposa se casou com você para ser honrada e protegida. **Lembra de alguma vez em que ela não se sentiu assim? Como vocẽ agiria diferente hoje?**
 
 
 
