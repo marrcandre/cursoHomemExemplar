@@ -651,11 +651,29 @@ Se você quer ser um homem exemplar, tudo começa em casa. Se você oferecer à 
 3. Quando foi a última vez que a sua esposa lhe confrontou sobre o seu caráter ou comportamento? **Como você reagiu?**
 4. A sua esposa se casou com você para ser honrada e protegida. **Lembra de alguma vez em que ela não se sentiu assim? Como vocẽ agiria diferente hoje?**
 
+# 8. CRIANDO FILHOS E FILHAS
 
+> _"Pais, não irritem seus filhos; antes criem-nos segundo a instrução e o conselho do Senhor."_ (Efésios 6:4)
 
+Estamos colhendo os resultados de uma geração sem pai. Filhos estão crescendo com buracos em seus corações. Meninos estão se tornando homens sem nenhum senso de identidade ou confiança. Meninas estão se entregando por pouco, porque nunca foram honradas por um pai.
 
+Um pai presente molda uma nação. É tempo de nos tornarmos homens exemplares e assumirmos nossa responsabilidade.
 
+O salmista disse:
 
+> _"Os filhos são herança do Senhor, uma recompensa que ele dá. Como flechas nas mãos do guerreiro são os filhos nascidos na juventude. Como é feliz o homem que tem a sua aljava cheia deles!"_ (Salmo 127:3-5)
+
+Vamos ver 3 áreas conde podemos fazer a diferença na criação de nossos filhos.
+
+## 8.1 ATENÇÃO
+
+Passe pelo menos 15 minutos por dia numa conversa sem interrupções com cada um de seus filhos. Se você não puder fazer isso, então você não deveria ter filhos.
+
+Os filhos não conseguem esconder seus sentimentos, desapontamentos e feridas do dia por 15 minutos. Dê a eles esse tempo para liberar seus sentimentos. Não deixe que seus filhos cresçam sem saber que você se importa com eles.
+
+- E**nvolva-se no que eles estao envolvidos.** Isso significa fazer sua atividade favorita com eles.
+- **Monitore seus relacionamentos.** Conheça os amigos deles e os pais dos amigos. Evite que durmam fora de casa. Deixe claro que, na hora certa, você irá ajudá-los a encontrar um cônjuge.
+- **Tenham uma noite em família.** Essa talvez seja uma das coisas mais importantes que você pode fazer ao criar seus filhos. Com isso você diz à criança: _"Você é importante. Eu não coloco nada acima de você, seja trabalho, amigos ou hobbies. Eu posso te corrigir várias vezes durante a semana, mas essa é uma noite de apenas bastante diversão."_
 
 # 9. LEGADO - A SUA MAIOR MISSÃO
 
