@@ -550,72 +550,113 @@ Encontre o seu propósito - o seu mandato, o seu método e o seu dinheiro. Viva 
 3. A árvore de servir e agradar a Deus é a que Jesus e Paulo passaram suas vidas subindo. **Discuta sobre como Deus libertou você de construir influência e lhe mostrou o seu propósito eterno e a satisfação em agradar a Ele.**
 4. O seu mandato, seu método e seu dinheiro acompanham sua paixão e seu propósito. **Qual você diria que é o seu mandato de vida e o que você está fazendo para cumpri-lo?**
 
+# 7. FAZENDO SUA ESPOSA FELIZ
+
+
+> _"Igualmente vós, maridos, coabitai com elas com **entendimento**, dando **honra** à mulher, como vaso **mais fraco**; como sendo vós os seus co-herdeiros da graça da vida; para que não sejam impedidas as vossas orações."_ (1 Pedro 3:7 ACF)
+
+A respeito da mulher, Davi escreveu:
+
+> _"Tua mulher será como **videira frutífera** no interior da tua casa."_ (Salmo 128:3)
+
+Isso significa que sua mulher será como uma "flor no centro da sua casa". Ela estará tão feliz que florescerá bem no centro do seu lar. Apesar de ser você o líder da sua família, é ela que controla o ambiente. Em outras palavras, **se você quer ter um lar feliz, faça sua mulher feliz**.
+
+ Para que isso aconteça, alguns erros precisam ser evitados.
+
+## 7.1 INSEGURANÇA FINANCEIRA
+
+Deus disse a Eva:
+
+> _Seu desejo será para o seu marido, e ele a dominará._ (Gênesis 3:16)
+
+Desde então, a mulher possui um desejo profundo, uma necessidade e uma vulnerabilidade pelo homem. Sua mulher não é atraída por sua aparência, mas pela segurança que você lhe proporciona.
+
+É por isso que a mulher anda pelo lado de dentro da calçada. É por isso que é você que levanta a noite para verificar o barulho na casa. E é por isso que ela te chama para matar uma barata.
+
+Com relação às finanças, acontece algo semelhante. Geralmente, os homens não se sentem inseguros financeiramente, mas as mulheres sim. Elas querem saber de onde virá o dinheiro pros próximos meses.
+
+A solução? Tenha uma reserva financeira de pelo menos 3 meses do seu salário no banco. Isso trará segurança para sua esposa.
+
+Como conseguir isso? Venda o que você não usa, corte gastos desnecessários, consiga uma renda extra. Talvez leve um tempo para "encher o seu baú", mas uma vez que você encha, mantenha-o cheio.
+
+Uma vez que você tenha essa reserva, não ficará mais preocupado se surgir um gast inesperado. Você resolve e volta a encher o fundo de reserva. E sua esposa ficará feliz.
+
+Seguindo na mesma linha, conserte todas as demais áreas que possam causar inseguança em sua esposa. Faça um seguro de vida, pague um plano de saúde, tenha um plano de previdência privada, etc. Conversem sobre isso e cheguem a um acordo que traga segurança para ela.
+
+Quando ela perceber que você está comprometido com prover segurança financeira para ela e seus filhos, ela se sentirá mais segura e feliz.
+
+Primeiro problema resolvido.
+
+## 7.2 SOLIDÃO
+
+Sua mulher precisa de relacionamento contínuo, profundo e íntimo com vocẽ. Muitas mulheres se sentem solitárias. E não basta estar em casa de corpo presente.
+
+Sua mulher precisa gastar suas 25 mil palavras por dia com alguém, e ele quer muito gastá-las com você. Não basta ser uma companhia, você precisa ser companheiro, ouvir com atenção, se interessar por ela, ouvir e compartilhar com ela.
+
+Sua mulher não quer um solucionador de problemas, ela quer um ouvinte. Desligue a TV, o celular, o computador e ouça sua mulher. Saiam para caminhar ou façam uma refeição sem pressa juntos, enquanto conversam. Quando sua mulher perceber que você está genuinamente interessado nela, ela se sentirá mais amada e feliz e se abrirá mais para você.
+
+Se você é como a maioria dos homens, essa é uma área em que você irá trabalhar a vida toda. Mas saiba que vale a pena.
+
+## 7.3 FALTA DE ROTINA
+
+Interrupções atrapalham a rotina e sua esposa precisa de regularidade. Estabeleçam uma rotina, incluindo horários para acordar e dormir, refeições, devocional, conversas, lazer, etc.
+
+Proteja sua vida de interrupções. Emergências acontecem, mas procure manter a rotina o máximo possível. Isso trará segurança para sua esposa.
+
+## 7.4 PROBLEMAS DE COMUNICAÇÃO
+
+Sua esposa deve poder conversar com você livremente sobre as frustrações e observações que tem quanto a você. Isso não significa desrespeitá-lo, mas ela pode querer conversar sobre coisas que genuinamente a incomodam, como a manutenção da casa, sua forma de dirigir ou seu ronco. Podem ser muitas coisas que a tem deixado chateada ao conviver com você.
+
+É como ter a etiqueta da sua camiseta para fora e um amigo a colocar para dentro. Ajustes gentis e respeitosos por parte de sua esposa devem ser vistos com bons olhos. Ela lhe ama e torce por você. Quando você avança, ela avança junto. E ela pode estar tentando te dizer o que centenas de outras pessoas enxergam e não conseguem entender porque você não faz nada a respeito.
+
+Não seja defensivo, deixe sua esposa ajustar você. Deus lhe deu sua esposa para ser sua ajudadora e companheira. Ela pode lhe tornar um homem muito melhor do que você é hoje. Sócrates disse: "Uma vida não examinada não vale a pena ser vivida". Deixe sua esposa ajudar.
+
+Procure ter uma atitude verdadeira e séria, buscando se ajustar em todas as questões que ela teve coragem de conversar com você. Faça isso e ela ficará feliz.
+
+## 7.5 DESONRA
+
+> _"Maridos, do mesmo modo, sejam sensíveis na convivência com suas mulheres e tratem-nas com honra, como parte mais frágil e co-herdeiras do dom da graça da vida, de forma que não sejam interrompidas as suas orações."_ (1 Pedro 3:7)
+
+Trate sua esposa com honra, faça-a se sentir a rainha do mundo. Caminhe ao lado de sua esposa, abra a porta do carro para ela, puxe a cadeira para ela se sentar, faça-a se sentir especial.
+
+Vista-a bem, compre um carro seguro pra ela e o mantenha limpo. Faça além do normal para dar-lhe honra e respeito, e veja sua mulher feliz de verdade.
+
+## 7.6 DESCONFIANÇA
+
+Confiança é crucial num casamento. A esposa precisa sentir transparência e honestidade em seu marido, ou ela perderá o respeito por ele.
+
+- Um homem exemplar cumpre sua palavra e seus compromissos com sua esposa, mesmo que seja o horário que prometeu chegar em casa.
+- Mantenha distância de qualquer outra mulher que não seja sua esposa. Um homem casado não tem amigas. Sua única amiga é sua esposa.
+- Não tenha conversar e nem faça elogios a outras mulheres. Se tiver que conversar, faça isso na presença de sua esposa.
+- Preste contas a sua esposa. Ela precisa saber onde você está, com quem está e o que está fazendo. Seja transparente e honesto com ela.
+- Não tenha segredos com sua esposa. Suas senhas, suas finanças, gastos, viagens, amigos, tudo deve ser compartilhado com ela.
+
+## 7.7 FALTA DE PROTEÇÃO
+
+> _"... Sou Rute, tua serva" ... "Estende a tua capa sobre a tua serva ..."_
+
+Uma mulher quer ter cobertura, não quer ser deixada para se defender sozinha. Em situações perigosas, difĩceis ou embaraçosas, você precisa "estender a sua capa" sobre sua esposa.
+
+Não importa se é com membros da igreja, família, vizinhos ou mesmo com seus próprios filhos, coloque-se entre ela e o problema.
+
+Sua esposa precisa saber que você a está guardando e protegendo, e que está disposto a entregar sua vida, se necessário, para defendê-la. Faça isso e ela ficará feliz por um bom tempo.
+
+
+
+
+
+
+
+
+
+# 9. LEGADO - A SUA MAIOR MISSÃO
 
 
 
 
 ---
 
-<!-- Nosso Cônjuge
-Lembre-se de que a família é o modelo do reino de Deus. Ele estabeleceu uma ordem divina em 1 Coríntios 11:3, “Quero, porém, que saibam que Cristo é o cabeça de todo homem, e o homem é o cabeça da mulher, e Deus é o cabeça de Cristo.”
-
-O marido deve ser o provedor, sacerdote e protetor de sua família. Seu amor por eles o faz colocá-los à frente de si mesmo, de seu ego, de seus interesses narcisistas e de seus hobbies. Ele vive por eles. O modelo do marido é Cristo, conforme observado em Efésios 5:25, “Maridos, amai vossas esposas, assim como Cristo amou a igreja e entregou-se por ela.”
-
-Um estilo de vida amoroso e fiel com sua pessoa favorita na terra que demonstra para toda a comunidade o que significa servir, perdoar e se entregar a outra pessoa.
-
-Nossos Filhos
-Igual ao modelo do seu casamento é o modelo dos seus filhos. Lucas 7:35 diz: “Mas a sabedoria é justificada por todos os seus filhos.”
-
-Como seus filhos se comportam, obedecem e respeitam a autoridade também é um modelo. Eles são um reflexo direto de você.
-
-Seção II: Consistência
-O Ritmo da Graça
-
-Fixo. Imóvel. Consistente.
-
-O caráter do homem modelo consistentemente resistiu ao teste do tempo. Ele pode ser contado. As pessoas podem prever que ele atravessará as tempestades, as mudanças e os caprichos da cultura com um caráter fixo e imóvel.
-
-A vida cristã é uma corrida de resistência. É sobre percorrer a distância e terminar forte na vida. Homens modelo devem aprender o ritmo da graça.
-
-1. Seu Jugo
-Jesus disse em Mateus 11:28-30, “Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Peguem meu jugo sobre vocês e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois meu jugo é fácil e meu fardo é leve.”
-
-A palavra Permanecer em João 15 significa "trabalhar em plena capacidade em um estado relaxado de fé." Deus espera que trabalhemos arduamente, para não ter preguiça em nosso caráter. No entanto, Ele também espera que permaneçamos relaxados interiormente, entregando as pressões e o estresse do sucesso enquanto permanecemos Nele.
-
-2. Seus Círculos Íntimos
-Jesus dedicou a maior parte de Seu tempo às pessoas mais próximas a Ele. Primeiro, estava Seu círculo íntimo de três discípulos: Pedro, Tiago e João. Depois vinha o grupo completo dos doze discípulos. Depois disso, vieram os setenta que Ele enviou para fazer o ministério.
-
-3. Seu Dinheiro
-A pressão financeira consome você, estressa você durante a noite e nunca sai da sua mente. Há uma palavra que imediatamente tirará essa pressão de você: margens.
-
-Dinheiro é sobre margens. Defina certas diretrizes para si mesmo:
-
-Siga a regra 10/10/80. Dízimo de 10%, poupança de 10% e viva com 80%.
-Estabeleça um orçamento de 90%. Defina seus gastos em 90% da sua renda do ano anterior.
-Viva abaixo de suas possibilidades.
-4. Suas Oportunidades
-Oportunidades são portas repentinas e inesperadas aparentemente levando ao avanço futuro. É fácil saltar para cada oportunidade: novas propriedades, mais locais, posições em conselhos, oportunidades na mídia e assim por diante. A questão é, Deus providenciou esta oportunidade, ou Satanás a enviou para esgotar seus recursos, pessoal e energia?
-
-Poder sobre Si Mesmo
-Se alguém deseja vir após Mim, negue-se a si mesmo, tome sua cruz diariamente e siga-me. – Lucas 9:23
-O quinto componente crítico do ritmo da graça é uma área por si só: disciplina. Ritmo é tudo sobre disciplina. Você é quem você é por causa da programação diária que manteve.
-
-Anos atrás, Charles Hummel escreveu Tirania do Urgente e aponta como frequentemente caímos na armadilha de deixar as coisas urgentes na vida tomar o lugar das coisas importantes.
-
-Em Marcos 1:35, Jesus disse, “Bem cedo de manhã, enquanto ainda estava escuro, Jesus levantou-se, saiu de casa e foi para um lugar solitário, onde orou.” Jesus começava e terminava seus dias em oração.
-
-Tenho tanto a fazer que passarei as primeiras três horas em oração. - Martinho Lutero
-
-Uma segunda disciplina para sua agenda é quanto você trabalha toda semana. Tente não trabalhar mais de 50 horas por semana. "Trabalho" refere
-
--se à sua ocupação principal, não ao ministério extra ou hobbies.
-
-Um dos pecados mais negligenciados é o trabalho em excesso. Precisamos desacelerar.
-
-Vamos manter este ritmo juntos. Vamos permanecer no ritmo da graça. -->
-
 # REFERÊNCIAS
 
 - [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
-- [Model Man: From Integrity to Legacy by Larry Stockstill](https://www.outofthisworldleadership.com/blog-posts/model-man-from-integrity-to-legacy-by-larry-stockstill/)
 
