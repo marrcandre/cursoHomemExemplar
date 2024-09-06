@@ -102,7 +102,7 @@ As pessoas na sua comunidade o conhecem por suas finanças. Pagar suas contas em
 
 Veja o que Paulo diz sobre o pagamento de impostos:
 
->_"Por isso é que pagais tributo também; porque são ministros de Deus, atendendo sempre a isso mesmo. Dai a cada um o que deveis: a quem tributo, tributo; a quem imposto, imposto; a quem respeito, respeito; a quem honra, honra. A ninguém fiqueis devendo coisa alguma, a não ser o amor com que vos ameis uns aos outros; pois quem ama ao próximo, cumpriu a lei."_ (Romanos 13:6-8)
+>_"Por essa razão, vocês também pagam impostos, pois as autoridades estão a serviço de Deus, sempre dedicadas a esse trabalho. Dêem a cada um o que lhe é devido: se imposto, imposto; se tributo, tributo; se temor, temor; se honra, honra. Não devam nada a ninguém, a não ser o amor mútuo, pois aquele que ama o seu próximo tem cumprido a lei."_ (Romanos 13:6-8)
 
 Nenhum de nós quer pagar mais ao governo do que deve, mas nossa integridade exige que paguemos de forma justa e pontual ao governo.
 
@@ -110,7 +110,7 @@ O mesmo princípio vale para Deus e Seu **dízimo**. Se não posso ter integrida
 
 Daniel era tão meticuloso em seu manejo das finanças que seus inimigos:
 
-> _"não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele."_ (Daniel 6:4)
+>_"não puderam encontrar motivo de queixa ou falha alguma, porque ele era fiel, e nenhum erro ou falha foi encontrado nele."_ (Daniel 6:4)
 
 Resumindo, integridade é a fundação de quem você é, do que sua família se tornará e do sucesso que seus negócios terão. É como você se comporta quando ninguém está olhando. É viver a vida com temor a Deus sem se importar com a opinião do homem. Viver com integridade requer coragem.
 
@@ -195,7 +195,7 @@ Use um sistema de relações e atividades confiáveis e consistentes que você n
 
 O livro de Eclesiastes nos diz:
 
->_“Melhor é serem dois do que um, porque têm melhor paga do seu trabalho. Pois se caírem, um levantará o seu companheiro; mas ai do que estiver só; pois, caindo, não haverá outro que o levante.”_ (Eclesiastes 4:9-10)
+>_"É melhor ter companhia do que estar sozinho, porque maior é a recompensa do trabalho de duas pessoas. Se um cair, o amigo pode ajudá-lo a levantar-se. Mas pobre do homem que cai e não tem quem o ajude a levantar-se!"_ (Eclesiastes 4:9-10)
 
 
 **Participe de um GP semanalmente**
@@ -233,9 +233,9 @@ Essa prática constante tem o poder de te conectar ao Espírito Santo.
 >_"Mas seja um **exemplo** para os fiéis em palavra, no procedimento, no amor, na fé, na pureza."_ (1 Timóteo 4:12)
 
 
->_“Irmãos, sede **imitadores** meus e observai os que assim se comportam segundo o **modelo** que tendes em nós”_ (Filipenses 3:17)
+>_"Irmãos, **sejam meus imitadores** e observem os que vivem de acordo com o padrão que lhes apresentamos."_ (Filipenses 3:17)
 
->_“Ninguém despreze a tua mocidade; mas sê o **exemplo** dos fiéis, na palavra, no procedimento, no amor, na fé, na pureza”_ (1 Timóteo 4:12).
+>_**Seja exemplo** para os fiéis em palavra, em conduta, em amor, em fé e em pureza._ (1 Timóteo 4:12)
 
 Como um homem exemplar, talvez você não se perceba nos holofotes, mas os olhos estão sim voltados para você. Alguém está vigiando cada passo que você dá. Mesmo que seja uma única pessoa, ela é mais importante do que o mundo inteiro.
 
@@ -248,13 +248,13 @@ Deus está te chamando para ser visto e observado. Você está disposto a isso?
 
 ## 3.1 NOSSA MANEIRA DE FALAR
 
-> _"Se alguém não tropeça no falar, este é homem perfeito, capaz de refrear também todo o corpo."_ (Tiago 3:2)
+>_"Se alguém não tropeça no falar, este é homem perfeito, capaz de refrear também todo o corpo."_ (Tiago 3:2)
 
 Controle sua língua e você poderá controlar todo o seu corpo.
 
 As pessoas observam como você trata o garçom em um restaurante, o frentista no posto, o caixa no mercado ou o porteiro do prédio. As palavras que você diz para sua esposa, seus filhos, seus funcionários ou um vendedor em uma loja se tornam a medida de sua espiritualidade para muitas pessoas.
 
-> _"A língua tem o poder sobre a vida e sobre a morte."_ (Provérbios 18:21a)
+>_"A língua tem o poder sobre a vida e sobre a morte."_ (Provérbios 18:21a)
 
 Somente o Espírito Santo pode controlar a língua. Peça a Ele para te ajudar a controlar suas palavras.
 
@@ -289,7 +289,7 @@ Somos confrontados com regulamentos, regras, políticas e procedimentos em todas
 
 # 4. O RITMO DA GRAÇA
 
-> _"Livremo-nos de tudo o que nos atrapalha e do pecado que nos envolve, e corramos com perseverança a corrida que nos é proposta."_ (Hebreus 12:1)
+>_"Livremo-nos de tudo o que nos atrapalha e do pecado que nos envolve, e corramos com perseverança a corrida que nos é proposta."_ (Hebreus 12:1)
 
 Não estamos numa corrida de velocidade, mas numa corrida de **resistência**. A vida cristã é uma **maratona**, não um _sprint_. É sobre percorrer a distância toda e terminar forte na vida.
 
@@ -305,11 +305,11 @@ Muitos homens estão operando com energia e adrenalina ou invés de propósito e
 
 Veja o que o sogro de Moisés, Jetro, disse a ele:
 
-> _"O que você está fazendo não é bom. Você e o povo que o acompanha certamente **desgastarão**, pois este trabalho é pesado demais para você; você não pode fazê-lo sozinho."_ (Êxodo 18:17-18)
+>_"O que você está fazendo não é bom. Você e o povo que o acompanha certamente **desgastarão**, pois este trabalho é pesado demais para você; você não pode fazê-lo sozinho."_ (Êxodo 18:17-18)
 
 Jetro aconselhou Moisés a **delegar**. Ele disse a Moisés para escolher homens capazes e confiáveis e colocá-los como líderes sobre o povo. Moisés deveria lidar apenas com os casos mais difíceis.
 
-> _"Se você fizer isso, e Deus assim o ordenar, poderá **sustentar** a pressão, e todo este povo chegará ao seu lugar em paz."_ (Êxodo 18:23)
+>_"Se você fizer isso, e Deus assim o ordenar, poderá **sustentar** a pressão, e todo este povo chegará ao seu lugar em paz."_ (Êxodo 18:23)
 
 ## 4.2 ÁREAS DE NOSSA VIDA EM QUE PRECISAMOS MANTER O RITMO DA GRAÇA
 
@@ -319,7 +319,7 @@ Vamos verificar algumas áreas da nossa vida onde precisamos manter o ritmo da g
 
 Jesus disse:
 
-> _"Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Tomem sobre vocês o meu jugo e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois o meu jugo é suave e o meu fardo é leve."_ (Mateus 11:28-30)
+>_"Venham a mim, todos vocês que estão cansados e sobrecarregados, e eu lhes darei descanso. Tomem sobre vocês o meu jugo e aprendam de mim, pois sou manso e humilde de coração, e vocês encontrarão descanso para as suas almas. Pois o meu jugo é suave e o meu fardo é leve."_ (Mateus 11:28-30)
 
 O jugo de Jesus é fácil e leve. Ele não nos sobrecarrega com regras e regulamentos. Ele nos dá liberdade e descanso.
 
@@ -365,7 +365,7 @@ A questão sempre é: Deus enviou essa oportunidade ou Satanás a enviou para es
 
 O momento certo é algo crítico em oportunidades. Deus pode estar lhe dizendo para fazer algo, mas não nesse momento.
 
-> _"O meu tempo ainda não chegou, mas o tempo de vocês está sempre pronto."_ (João 7:6)
+>_"O meu tempo ainda não chegou, mas o tempo de vocês está sempre pronto."_ (João 7:6)
 
 ## QUESTÕES PARA DISCUSSÃO
 
@@ -377,7 +377,7 @@ O momento certo é algo crítico em oportunidades. Deus pode estar lhe dizendo p
 
 # 5. PODER SOBRE SI MESMO
 
-> _"Se alguém deseja vir após mim, negue-se a si mesmo, tome a sua cruz **diariamente** e siga-me."_ (Lucas 9:23)
+>_"Se alguém deseja vir após mim, negue-se a si mesmo, tome a sua cruz **diariamente** e siga-me."_ (Lucas 9:23)
 
 O quinto componente crítico do ritmo da graça é uma área por si só: **disciplina**. Ritmo é tudo sobre disciplina. **Você é quem você é por causa da programação diária que manteve.**
 
@@ -448,9 +448,9 @@ Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuida
 
 # 6. VIVENDO UMA VIDA DE PROPÓSITO
 
-> _"Se tão somente puder terminar a corrida ... que Deus **me** confiou..."_ (Atos 20:24)
+>_"Se tão somente puder terminar a corrida ... que Deus **me** confiou..."_ (Atos 20:24)
 
-> _"Porque somos feitura dele, criados em Cristo Jesus **para boas obras**..."_ (Efésios 2:10)
+>_"Porque somos feitura dele, criados em Cristo Jesus **para boas obras**..."_ (Efésios 2:10)
 
 Atividades sem propósito tornam a vida sem sentido, chata e depressiva.
 
@@ -458,11 +458,11 @@ Atividades sem propósito tornam a vida sem sentido, chata e depressiva.
 
 **O objetivo de Jesus não era prolongar a vida, mas cumprir o propósito de Deus para Sua vida.**
 
-_"Eles estavam indo para Jerusalém, e Jesus ia à frente. Os discípulos estavam admirados, enquanto os que o seguiam estavam com medo."_ (Marcos 10:32a)
+>_"Eles estavam indo para Jerusalém, e Jesus ia à frente. Os discípulos estavam admirados, enquanto os que o seguiam estavam com medo."_ (Marcos 10:32a)
 
 De forma semelhante, Paulo fez o mesmo, enquanto seguia rumo à sua morte em Roma.
 
-_"Sei que em todas as cidades o Espírito Santo me avisa que prisões e sofrimentos me esperam. Todavia, não me importo, nem considero a minha vida de valor algum para mim mesmo, se tão somente puder terminar a corrida e completar o ministério que o Senhor Jesus **me** confiou, de testemunhar do evangelho da graça de Deus."_ (Atos 20:23-24)
+>_"Sei que em todas as cidades o Espírito Santo me avisa que prisões e sofrimentos me esperam. Todavia, não me importo, nem considero a minha vida de valor algum para mim mesmo, se tão somente puder terminar a corrida e completar o ministério que o Senhor Jesus **me** confiou, de testemunhar do evangelho da graça de Deus."_ (Atos 20:23-24)
 
 Todos os líderes da igreja primitiva morreram com um propósito, começando com Estevão e terminando com João. Eles viveram e morreram pelos outros, procurando influenciar as pessoas com o evangelho de Jesus Cristo.
 
@@ -488,18 +488,18 @@ Vejamos o exemplo de Jesus, Paulo e tantos outros homens de Deus. Eles viveram p
 
 Jesus disse:
 
-> _"Ele não me deixou sozinho, pois sempre faço o que lhe agrada."_ (João 8:29)
+>_"Ele não me deixou sozinho, pois sempre faço o que lhe agrada."_ (João 8:29)
 
 No dia do seu batismo, Jesus ouviu a voz do Pai:
 
-> _"Este é o meu Filho amado, de quem me agrado."_ (Mateus 3:17)
+>_"Este é o meu Filho amado, de quem me agrado."_ (Mateus 3:17)
 
 No monte da transfiguração, Ele ouviu novamente do Pai:
 
-> _"Este é o meu Filho amado, de quem me agrado. Ouçam-no!"_ (Mateus 17:5)
+>_"Este é o meu Filho amado, de quem me agrado. Ouçam-no!"_ (Mateus 17:5)
 
 Paulo disse:
-> _"Por isso temos o propósito de Lhe agradar."_ (2 Coríntios 5:9)
+>_"Por isso temos o propósito de Lhe agradar."_ (2 Coríntios 5:9)
 
 Na raiz dessa linda árvore está o desejo de servir aos outros. Deus nos criou para servir aos outros. Quando vivemos para servir aos outros, nosso homem interior volta ao ritmo.  Servir é nosso estilo de vida, nosso chamado e nossa motivação. Vivemos para dar, servir e amar.
 
@@ -552,11 +552,11 @@ Encontre o seu propósito - o seu mandato, o seu método e o seu dinheiro. Viva 
 
 # 7. FAZENDO SUA ESPOSA FELIZ
 
-> _"Igualmente vós, maridos, coabitai com elas com **entendimento**, dando **honra** à mulher, como vaso **mais fraco**; como sendo vós os seus co-herdeiros da graça da vida; para que não sejam impedidas as vossas orações."_ (1 Pedro 3:7 ACF)
+>_"Igualmente vós, maridos, coabitai com elas com **entendimento**, dando **honra** à mulher, como vaso **mais fraco**; como sendo vós os seus co-herdeiros da graça da vida; para que não sejam impedidas as vossas orações."_ (1 Pedro 3:7 ACF)
 
 A respeito da mulher, Davi escreveu:
 
-> _"Tua mulher será como **videira frutífera** no interior da tua casa."_ (Salmo 128:3)
+>_"Tua mulher será como **videira frutífera** no interior da tua casa."_ (Salmo 128:3)
 
 Isso significa que sua mulher será como uma "flor no centro da sua casa". Ela estará tão feliz que florescerá bem no centro do seu lar. Apesar de ser você o líder da sua família, é ela que controla o ambiente. Em outras palavras, **se você quer ter um lar feliz, faça sua mulher feliz**.
 
@@ -566,7 +566,7 @@ Isso significa que sua mulher será como uma "flor no centro da sua casa". Ela e
 
 Deus disse a Eva:
 
-> _Seu desejo será para o seu marido, e ele a dominará._ (Gênesis 3:16)
+>_Seu desejo será para o seu marido, e ele a dominará._ (Gênesis 3:16)
 
 Desde então, a mulher possui um desejo profundo, uma necessidade e uma vulnerabilidade pelo homem. Sua mulher não é atraída por sua aparência, mas pela segurança que você lhe proporciona.
 
@@ -614,7 +614,7 @@ Procure ter uma atitude verdadeira e séria, buscando se ajustar em todas as que
 
 ## 7.5 DESONRA
 
-> _"Maridos, do mesmo modo, sejam sensíveis na convivência com suas mulheres e tratem-nas com honra, como parte mais frágil e co-herdeiras do dom da graça da vida, de forma que não sejam interrompidas as suas orações."_ (1 Pedro 3:7)
+>_"Maridos, do mesmo modo, sejam sensíveis na convivência com suas mulheres e tratem-nas com honra, como parte mais frágil e co-herdeiras do dom da graça da vida, de forma que não sejam interrompidas as suas orações."_ (1 Pedro 3:7)
 
 Trate sua esposa com honra, faça-a se sentir a rainha do mundo. Caminhe ao lado de sua esposa, abra a porta do carro para ela, puxe a cadeira para ela se sentar, faça-a se sentir especial.
 
@@ -632,7 +632,7 @@ Confiança é crucial num casamento. A esposa precisa sentir transparência e ho
 
 ## 7.7 FALTA DE PROTEÇÃO
 
-> _"... Sou Rute, tua serva" ... "Estende a tua capa sobre a tua serva ..."_
+>_"... Sou Rute, tua serva" ... "Estende a tua capa sobre a tua serva ..."_
 
 Uma mulher quer ter cobertura, não quer ser deixada para se defender sozinha. Em situações perigosas, difĩceis ou embaraçosas, você precisa "estender a sua capa" sobre sua esposa.
 
@@ -653,7 +653,7 @@ Se você quer ser um homem exemplar, tudo começa em casa. Se você oferecer à 
 
 # 8. CRIANDO FILHOS E FILHAS
 
-> _"Pais, não irritem seus filhos; antes criem-nos segundo a instrução e o conselho do Senhor."_ (Efésios 6:4)
+>_"Pais, não irritem seus filhos; antes criem-nos segundo a instrução e o conselho do Senhor."_ (Efésios 6:4)
 
 Estamos colhendo os resultados de uma geração sem pai. Filhos estão crescendo com buracos em seus corações. Meninos estão se tornando homens sem nenhum senso de identidade ou confiança. Meninas estão se entregando por pouco, porque nunca foram honradas por um pai.
 
@@ -661,7 +661,7 @@ Um pai presente molda uma nação. É tempo de nos tornarmos homens exemplares e
 
 O salmista disse:
 
-> _"Os filhos são herança do Senhor, uma recompensa que ele dá. Como flechas nas mãos do guerreiro são os filhos nascidos na juventude. Como é feliz o homem que tem a sua aljava cheia deles!"_ (Salmo 127:3-5)
+>_"Os filhos são herança do Senhor, uma recompensa que ele dá. Como flechas nas mãos do guerreiro são os filhos nascidos na juventude. Como é feliz o homem que tem a sua aljava cheia deles!"_ (Salmo 127:3-5)
 
 Vamos ver 3 áreas onde podemos fazer a diferença na criação de nossos filhos.
 
@@ -677,7 +677,7 @@ Os filhos não conseguem esconder seus sentimentos, desapontamentos e feridas do
 
 ## 8.2 CARINHO
 
-> _"E dos céus veio uma voz: 'Tu és o meu Filho amado; em ti me agrado'."_ (Marcos 1:11 NVI)
+>_"E dos céus veio uma voz: 'Tu és o meu Filho amado; em ti me agrado'."_ (Marcos 1:11)
 
 Quando Jesus saiu das águas do batismo, deus lhe deu:
 
@@ -693,7 +693,7 @@ Aqueles que nunca ouvem essas palavras passam suas vidas tentando provar a si me
 
 Veja como o pai do filho pródigo foi carinhoso com ele:
 
-> _"Correu para seu filho, e o abraçou e beijou."_ (Lucas 15:20b NBV)
+>_"Correu para seu filho, e o abraçou e beijou."_ (Lucas 15:20b NBV)
 
 Além do carinho físico, **diga** repetidamente aos seus filhos que você os ama e que se orgulha deles.
 
