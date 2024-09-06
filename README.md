@@ -671,9 +671,39 @@ Passe pelo menos 15 minutos por dia numa conversa sem interrupções com cada um
 
 Os filhos não conseguem esconder seus sentimentos, desapontamentos e feridas do dia por 15 minutos. Dê a eles esse tempo para liberar seus sentimentos. Não deixe que seus filhos cresçam sem saber que você se importa com eles.
 
-- E**nvolva-se no que eles estao envolvidos.** Isso significa fazer sua atividade favorita com eles.
+- **Envolva-se no que eles estao envolvidos.** Isso significa fazer sua atividade favorita com eles.
 - **Monitore seus relacionamentos.** Conheça os amigos deles e os pais dos amigos. Evite que durmam fora de casa. Deixe claro que, na hora certa, você irá ajudá-los a encontrar um cônjuge.
-- **Tenham uma noite em família.** Essa talvez seja uma das coisas mais importantes que você pode fazer ao criar seus filhos. Com isso você diz à criança: _"Você é importante. Eu não coloco nada acima de você, seja trabalho, amigos ou hobbies. Eu posso te corrigir várias vezes durante a semana, mas essa é uma noite de apenas bastante diversão."_
+- **Tenham uma noite em família.** Essa talvez seja uma das coisas mais importantes que você pode fazer ao criar seus filhos. Com isso você diz à criança: _"Você é importante. Eu não coloco nada acima de você, seja trabalho, amigos ou hobbies. Eu posso te corrigir várias vezes durante a semana, mas essa é uma noite de apenas bastante diversão."_  A chave aqui é **diversão!** Ouça o que seus filhos gostariam de fazer e use sua criatividade.
+
+## 8.2 CARINHO
+
+> _"E dos céus veio uma voz: 'Tu és o meu Filho amado; em ti me agrado'."_ (Marcos 1:11 NVI)
+
+Quando Jesus saiu das águas do batismo, deus lhe deu:
+
+1. **Identidade:** *"Tu és o meu Filho"*. Jesus sabia que pertencia ao Pai.
+2. **Validação:** *"Amado"*. O Pai o validou publicamente, declarando a todos que o amava.
+3. **Afirmação:** *"Em ti me agrado"*. O Pai disse pessoalmente a Jesus o quanto estava satisfeito com Ele.
+
+Aqueles que nunca ouvem essas palavras passam suas vidas tentando provar a si mesmos. Eles temem cada desafio novo, com medo de falhar e serem rejeitados.
+
+**Dê carinho e faça elogios**
+
+É importante lembrar que **o carinho precisa ser físico**. Toque, abraços e beijos devem fazer parte da cultura do seu lar. Uma cultura distante, fria, baseada somente em desempenho não permite que a afirmação verdadeira e o amor penetrem nela.
+
+Veja como o pai do filho pródigo foi carinhoso com ele:
+
+> _"Correu para seu filho, e o abraçou e beijou."_ (Lucas 15:20b NBV)
+
+Além do carinho físico, **diga** repetidamente aos seus filhos que você os ama e que se orgulha deles.
+
+**Esteja presente nas ocasiôes especiais**
+
+Seus filhos esperam ver você nos seus jogos, apresentações, formaturas, etc. Lembre-se, ninguèm pode afirmar seu filho como você.
+
+**Discipline**
+
+
 
 # 9. LEGADO - A SUA MAIOR MISSÃO
 
