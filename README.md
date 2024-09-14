@@ -1,5 +1,18 @@
 **CURSO: HOMEM EXEMPLAR**
 
+**SUMÁRIO**
+- [INTRODUÇÃO: UMA NAÇÃO DESESPERADA POR MODELOS](#introdução-uma-nação-desesperada-por-modelos)
+- [1. INTEGRIDADE CORAJOSA](#1-integridade-corajosa)
+- [2. A GUERRA PELA PUREZA SEXUAL](#2-a-guerra-pela-pureza-sexual)
+- [3. TODOS OS OLHOS ESTÃO EM VOCÊ](#3-todos-os-olhos-estão-em-você)
+- [4. O RITMO DA GRAÇA](#4-o-ritmo-da-graça)
+- [5. PODER SOBRE SI MESMO](#5-poder-sobre-si-mesmo)
+- [6. VIVENDO UMA VIDA DE PROPÓSITO](#6-vivendo-uma-vida-de-propósito)
+- [7. FAZENDO SUA ESPOSA FELIZ](#7-fazendo-sua-esposa-feliz)
+- [8. CRIANDO FILHOS E FILHAS](#8-criando-filhos-e-filhas)
+- [9. LEGADO - A SUA MAIOR MISSÃO](#9-legado---a-sua-maior-missão)
+
+
 # INTRODUÇÃO: UMA NAÇÃO DESESPERADA POR MODELOS
 
 _Mas para nos oferecermos como modelo para vocês, para que vocês sigam nosso exemplo._ 2 Tessalonicenses 3:9
@@ -729,14 +742,98 @@ Estabeleça bons hábitos com seus filhos desde pequenos.
 
 # 9. LEGADO - A SUA MAIOR MISSÃO
 
+## 9.1 INTRODUÇÃO
 
+> _Coisas que ouvimos e aprendemos e que os nossos pais nos contaram. Não as esconderemos dos nossos filhos; contaremos à próxima geração
+os louváveis feitos do Senhor, o seu poder e as maravilhas que fez._ (Salmos 78:3-4)
 
+**Um legado é algo passado para a próxima geração.** Tem a ver com discipular, modelar intencionamente outra pessoa para carregar seus valores e a sua visão depois que você não estiver mais presente. Tem a ver com criar "filhos".
 
+Elias preparou Eliseu como seu sucessor, assim como Moisés preparou a Josué. O Reino de Deus é como uma corrida de revezamento e discipular é passar o bastão do evangelho que você recebeu. Essa é a maior missão de sua vida.
 
+> _Anseio vê-los, a fim de compartilhar com vocês algum dom espiritual, para fortalecê-los, isto é, para que eu e vocês sejamos mutuamente encorajados pela fé._ (Romanos 1:11-12)
 
----
+O maior desejo e alegria de Paulo era ver as pessoas se desenvolverem a partir do relacionamento que tinham com ele. Jesus discipulou 12 homens por 3 anos, para depois mudarem a História.
 
-# REFERÊNCIAS
+## 9.2 PAULO E TIMÓTEO
 
-- [Um Homem Exemplar. Da Integridade ao Legado. Larry Stockstill](https://www.amazon.com.br/Um-Homem-Exemplar-Integridade-Legado/dp/859985870X)
+Paulo teve vários discípulos, sendo Timóteo um dos mais queridos. Vamos ver o que podemo aprender com esse relacionamento.
 
+**1. Um filho é um amigo**
+
+Paulo e Timóteo eram muito próximos. Eles caminharam e trabalharam juntos por muito tempo.
+
+> _Por essa razão estou enviando a vocês Timóteo, **meu filho amado** e fiel no Senhor, o qual lhes trará à lembrança a minha maneira de viver em Cristo Jesus, de acordo com o que eu ensino por toda parte, em todas as igrejas._ (1 Coríntios 4:17)
+
+Um filho tem que estar o suficiente com você para que sua vida, atitudes e perspectivas passem para ele. O filho precisa esta lado a lado com o pai, para poder escutar, observar e imitar seu estilo de vida.
+
+Para haver um discipulado efetivo, precisa-se de tempo. Não é uma aula ou umapalestra; é um estilo de vida. É passar tempo juntos, viajarm escutar, compartilhar e passar juntos por momentos difíceis.
+
+**2. Um filho é um servo**
+
+> _"Não tenho ninguém que, como ele, tenha interesse sincero pelo bem-estar de vocês, pois todos buscam os seus próprios interesses e não os de Jesus Cristo. Mas vocês sabem que Timóteo foi aprovado porque **serviu comigo** no trabalho do evangelho **como um filho ao lado de seu pai**."_ (Filipenses 2:20-22)
+
+Paulo era um incansável trabalhador e um ministro apaixonado e qualquer um que quisesse ser seu aprendiz, filho e sucessor teria que se tornar semelhante a ele.
+
+Leve seu filhos a servir junto com você e forme-os no processo.
+
+**3. Um fiho é um discipulador também**
+
+> _"Portanto, você, meu filho, fortifique-se na graça que há em Cristo Jesus. E as palavras que me ouviu dizer na presença de muitas testemunhas, confie-as a homens fiéis que sejam também capazes de ensiná-las a outros."_ (2 Timóteo 2:1-2)
+
+Jesus nos chama para sermos servos fiéis, formando novos discípulos, que continuarão fazendo o mesmo. Nosso chamado não pode acabar em nós.
+
+## 9.3 JESUS E SEUS DISCÍPULOS
+
+Ninguém deixou um legado maior do que Jesus. Seus discípulos se multiplicaram em todas as nações, culturas e gerações e chegaram até nós. Como ele fez isso? Através de *seleção*, *comunicação*, *confronto* e *compromisso*.
+
+**1. Seleção**
+
+Jesus escolheu cuidadosamente homens batalhadores e que já exerciam suas atividades.
+
+**2. Comunicação**
+
+Jesus tinha intencionalidade, preferindo passar tempo com seus discípulos a qualquer outro grupo. Leve seus discípulos para fazer coisas com você: viajar, caminhar, pescar, consertar coisas. Vivam a vida juntos.
+
+**3. Confronto**
+
+Jesus não tinha problemas em confrontar seus discípulos. Seu discípulo precisa estar disposto a receber correção. Quanto mais tempo você passa com uma pessoa, maior a chance de surgirem atitudes que precisam ser confrontadas. Tudo bem. Isso faz parte do discipulado. Sem confronto não há mudança.
+
+Davi não confrontou seus filhos e isso trouxe graves consequências para sua vida e todo o seu reino.
+
+> _Seu pai nunca o havia contrariado; nunca lhe perguntava: “Por que você age assim?”_ (1 Reis 1:6a)
+
+Você não pode tolerar mau caráter em alguém que você discipula, então terá que confrontá-lo quando surgirem as situações.
+
+**4. Compromisso**
+
+Jesus se comprometeu até a morte com seus discípulos. E eles fizeram o mesmo.
+
+Num determinado momento, quando alguns deixaram de segui-lo, ele até perguntou:
+
+> _"Vocês também querem ir?"_ (João 6:67)
+
+É necessário compromisso total para levar a tocha adiante para a próxima geração.
+
+## 9.4 COMO DEIXAR UM LEGADO
+
+Ao invés de pensar em se aposentar ou viver pra si mesmo, desperte e volte-se para a próxima geração.
+
+**1. Reconheça que os membros da próxima geração são importantes.**
+
+Eles não devem ser apenas tolerados; precisam ser desenvolvidos. Apresente-os como um aprendiz e seja uma boa influência.
+
+**2. Dê-lhes um _"momento de prática"_.**
+
+Envolva seus discípulos em tudo o que você faz, dê-lhes oportunidade de praticar , guie-os através dos seus erros, reforce suas vitórias e use sua experiência para dar-lhes comentários que os validem.
+
+**3. Tenha um pouco de misericórdia deles.**
+
+Discipular requer paciência. Pense nas coisas idiotas que você já fez na vida. Não permita que um grande erro de outra pessoa a desqualifique em sua mente. Quando ela cair, ajude-a a se levantar e salve-a da limitação.
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Em nossa geração, muitos homens estão apenas pensado em si mesmos.**Você tem pensando na próxima geração e em deixar um legado?**
+2. Timóteo assumiu a maior congregação de Paulo, seu pai espiritual. **Quem você está preparando hoje, para ir além de suas conquistas e realizações?**
+3. Jesus não tinha medo de confrontar seus discípulos. **Como você pode confrontar em amor?**
+4. Todos nós preferimos fazer sozinhos do que dar uma chance a alguém inexperiente. **O que você pode fazer melhor a fim de dar a outros a oportunidade de fazer o que você faz e, assim, discipulá-los para serem mais excelentes que você?**
