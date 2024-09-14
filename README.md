@@ -402,7 +402,7 @@ Mantenha uma agenda devocional diária. Somos ocupados demais para não orar. A 
 
 Uma boa estratégia é separar um tempo logo cedo, enquanto a casa ainda está em silêncio, você está relaxado e os compromissos do dia ainda não começaram. Se você não tem esse tempo, encontre um lugar tranquilo durante o dia.
 
-Existem vários métodos e formatos para a oração e seu tempo de devocional. Voce pode adotar um ou mais desses métodos, ou criar o seu próprio:
+Existem vários métodos e formatos para a oração e seu tempo de devocional. Você pode adotar um ou mais desses métodos, ou criar o seu próprio:
 
 - Oração do tabernáculo (que passa por cada parte do tabernáculo, e seus utensílios)
 - Oração do Pai Nosso (utilizar cada parte da oração como um modelo de oração)
@@ -445,7 +445,7 @@ Sua saúde vai depender de 3 fatores: descanso, exercícios e alimentação.
 2. **Exercícios:** Estabeleça uma rotina diária de exercícios físicos. Isso pode ser uma caminhada, uma corrida, uma ida à academia, um esporte, etc. O importante é encontrar algo que você goste e que possa fazer regularmente.
 3. **Alimentação:** Coma mais cedo. Estabeleça uma rotina de alimentação saudável. Isso inclui evitar fast-food, refrigerantes, doces, frituras, etc. Procure comer mais frutas, verduras, legumes, grãos, proteínas e beber bastante água. Não faça um plano drástico de perda de peso. Simplesmente discipline-se a comer em horários regulares com porções razoáveis de alimento saudável.
 
-Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuidarmos dele, não teremos energia, disposição e saúde para fazer a obra de Deus. Queremos com isso viver uma vida longa e saudável, para veros frutos do nosso trabalho e para cumprir o propósito de Deus para nossa vida.
+Cuidamos do nosso corpo porque ele é o templo do Espírito Santo. Se não cuidarmos dele, não teremos energia, disposição e saúde para fazer a obra de Deus. Queremos com isso viver uma vida longa e saudável, para ver os frutos do nosso trabalho e para cumprir o propósito de Deus para nossa vida.
 
 ## CONCLUSÃO
 
@@ -593,7 +593,7 @@ Como conseguir isso? Venda o que você não usa, corte gastos desnecessários, c
 
 Uma vez que você tenha essa reserva, não ficará mais preocupado se surgir um gasto inesperado. Você resolve e volta a encher o fundo de reserva. E sua esposa ficará feliz.
 
-Seguindo na mesma linha, conserte todas as demais áreas que possam causar inseguança em sua esposa. Faça um seguro de vida, pague um plano de saúde, tenha um plano de previdência privada, etc. Conversem sobre isso e cheguem a um acordo que traga segurança para ela.
+Seguindo na mesma linha, conserte todas as demais áreas que possam causar insegurança em sua esposa. Faça um seguro de vida, pague um plano de saúde, tenha um plano de previdência privada, etc. Conversem sobre isso e cheguem a um acordo que traga segurança para ela.
 
 Quando ela perceber que você está comprometido com prover segurança financeira para ela e seus filhos, ela se sentirá mais segura e feliz.
 
@@ -617,7 +617,7 @@ Proteja sua vida de interrupções. Emergências acontecem, mas procure manter a
 
 ## 7.4 PROBLEMAS DE COMUNICAÇÃO
 
-Sua esposa deve poder conversar com você livremente sobre as frustrações e observações que têem quanto a você. Isso não significa desrespeitá-lo, mas ela pode querer conversar sobre coisas que genuinamente a incomodam, como a manutenção da casa, sua forma de dirigir ou seu ronco. Podem ser muitas coisas que a tem deixado chateada ao conviver com você.
+Sua esposa deve poder conversar com você livremente sobre as frustrações e observações que têm quanto a você. Isso não significa desrespeitá-lo, mas ela pode querer conversar sobre coisas que genuinamente a incomodam, como a manutenção da casa, sua forma de dirigir ou seu ronco. Podem ser muitas coisas que a tem deixado chateada ao conviver com você.
 
 É como ter a etiqueta da sua camiseta para fora e um amigo a colocar para dentro. Ajustes gentis e respeitosos por parte de sua esposa devem ser vistos com bons olhos. Ela lhe ama e torce por você. Quando você avança, ela avança junto. E ela pode estar tentando te dizer o que centenas de outras pessoas enxergam e não conseguem entender porque você não faz nada a respeito.
 
@@ -728,7 +728,7 @@ Boas escolhas significam boas consequências. Escolhas ruins, significam consequ
 
 > _Nenhuma disciplina parece motivo de alegria no momento em que é recebida, mas sim motivo de tristeza. Mais tarde, no entanto, produz fruto de justiça e paz para aqueles que por ela foram exercitados._ (Hebreus 12:11)
 
-Esse versículo nos ensina qie a dor transforma o caráter. Não impeça seus filhos de sofrerem as consequências de seus atos e chegarem ao arrependimento.
+Esse versículo nos ensina que a dor transforma o caráter. Não impeça seus filhos de sofrerem as consequências de seus atos e chegarem ao arrependimento.
 
 Estabeleça bons hábitos com seus filhos desde pequenos.
 
@@ -737,7 +737,7 @@ Estabeleça bons hábitos com seus filhos desde pequenos.
 
 1. Você tem derramado palavras de afirmação sobre seus filhos? **Percebe resultados positivos? O que te impede de fazer?**
 2. E quanto a estar presente nas ocasiões especiais? **Que mudanças você se propoẽ a fazer a partir de hoje?**
-3. Você estebelece com clareza os limites para seus filhos em casa, no mercado, na escola e com outras crianças? **Como pode melhorar isso?**
+3. Você estabelece com clareza os limites para seus filhos em casa, no mercado, na escola e com outras crianças? **Como pode melhorar isso?**
 4. Seus filhos sabem as consequências de não cumprir os limites claramente estabelecidos? **Você tem dificuldade em deixá-los passar por essas consequências?**
 
 # 9. LEGADO - A SUA MAIOR MISSÃO
@@ -747,7 +747,7 @@ Estabeleça bons hábitos com seus filhos desde pequenos.
 > _Coisas que ouvimos e aprendemos e que os nossos pais nos contaram. Não as esconderemos dos nossos filhos; contaremos à próxima geração
 os louváveis feitos do Senhor, o seu poder e as maravilhas que fez._ (Salmos 78:3-4)
 
-**Um legado é algo passado para a próxima geração.** Tem a ver com discipular, modelar intencionamente outra pessoa para carregar seus valores e a sua visão depois que você não estiver mais presente. Tem a ver com criar "filhos".
+**Um legado é algo passado para a próxima geração.** Tem a ver com discipular, modelar intencionalmente outra pessoa para carregar seus valores e a sua visão depois que você não estiver mais presente. Tem a ver com criar "filhos".
 
 Elias preparou Eliseu como seu sucessor, assim como Moisés preparou a Josué. O Reino de Deus é como uma corrida de revezamento e discipular é passar o bastão do evangelho que você recebeu. Essa é a maior missão de sua vida.
 
@@ -757,7 +757,7 @@ O maior desejo e alegria de Paulo era ver as pessoas se desenvolverem a partir d
 
 ## 9.2 PAULO E TIMÓTEO
 
-Paulo teve vários discípulos, sendo Timóteo um dos mais queridos. Vamos ver o que podemo aprender com esse relacionamento.
+Paulo teve vários discípulos, sendo Timóteo um dos mais queridos. Vamos ver o que podemos aprender com esse relacionamento.
 
 **1. Um filho é um amigo**
 
@@ -765,9 +765,9 @@ Paulo e Timóteo eram muito próximos. Eles caminharam e trabalharam juntos por 
 
 > _Por essa razão estou enviando a vocês Timóteo, **meu filho amado** e fiel no Senhor, o qual lhes trará à lembrança a minha maneira de viver em Cristo Jesus, de acordo com o que eu ensino por toda parte, em todas as igrejas._ (1 Coríntios 4:17)
 
-Um filho tem que estar o suficiente com você para que sua vida, atitudes e perspectivas passem para ele. O filho precisa esta lado a lado com o pai, para poder escutar, observar e imitar seu estilo de vida.
+Um filho tem que estar o suficiente com você para que sua vida, atitudes e perspectivas passem para ele. O filho precisa estar lado a lado com o pai, para poder escutar, observar e imitar seu estilo de vida.
 
-Para haver um discipulado efetivo, precisa-se de tempo. Não é uma aula ou umapalestra; é um estilo de vida. É passar tempo juntos, viajarm escutar, compartilhar e passar juntos por momentos difíceis.
+Para haver um discipulado efetivo, precisa-se de tempo. Não é uma aula ou uma palestra; é um estilo de vida. É passar tempo juntos, viajar escutar, compartilhar e passar juntos por momentos difíceis.
 
 **2. Um filho é um servo**
 
@@ -775,9 +775,9 @@ Para haver um discipulado efetivo, precisa-se de tempo. Não é uma aula ou umap
 
 Paulo era um incansável trabalhador e um ministro apaixonado e qualquer um que quisesse ser seu aprendiz, filho e sucessor teria que se tornar semelhante a ele.
 
-Leve seu filhos a servir junto com você e forme-os no processo.
+Leve seus filhos a servir junto com você e forme-os no processo.
 
-**3. Um fiho é um discipulador também**
+**3. Um filho é um discipulador também**
 
 > _"Portanto, você, meu filho, fortifique-se na graça que há em Cristo Jesus. E as palavras que me ouviu dizer na presença de muitas testemunhas, confie-as a homens fiéis que sejam também capazes de ensiná-las a outros."_ (2 Timóteo 2:1-2)
 
@@ -817,7 +817,7 @@ Num determinado momento, quando alguns deixaram de segui-lo, ele até perguntou:
 
 ## 9.4 COMO DEIXAR UM LEGADO
 
-Ao invés de pensar em se aposentar ou viver pra si mesmo, desperte e volte-se para a próxima geração.
+Ao invés de pensar em se aposentar ou viver para si mesmo, desperte e volte-se para a próxima geração.
 
 **1. Reconheça que os membros da próxima geração são importantes.**
 
@@ -833,7 +833,7 @@ Discipular requer paciência. Pense nas coisas idiotas que você já fez na vida
 
 ## QUESTÕES PARA DISCUSSÃO
 
-1. Em nossa geração, muitos homens estão apenas pensado em si mesmos.**Você tem pensando na próxima geração e em deixar um legado?**
+1. Em nossa geração, muitos homens estão apenas pensando em si mesmos.**Você tem pensando na próxima geração e em deixar um legado?**
 2. Timóteo assumiu a maior congregação de Paulo, seu pai espiritual. **Quem você está preparando hoje, para ir além de suas conquistas e realizações?**
 3. Jesus não tinha medo de confrontar seus discípulos. **Como você pode confrontar em amor?**
 4. Todos nós preferimos fazer sozinhos do que dar uma chance a alguém inexperiente. **O que você pode fazer melhor a fim de dar a outros a oportunidade de fazer o que você faz e, assim, discipulá-los para serem mais excelentes que você?**
