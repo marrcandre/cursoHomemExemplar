@@ -703,9 +703,33 @@ Seus filhos esperam ver você nos seus jogos, apresentações, formaturas, etc. 
 
 **Discipline**
 
+A chave para obter disciplina é definir limites e consequências.
 
+> _Mas não coma da árvore do conhecimento do bem e do mal, porque, no dia em que comer dela, certamente você morrerá._ (Gênesis 2:17)
+
+Deus, o pai perfeito, estabeleceu limites para Adão e Eva. Ele também estabeleceu as consequências para a desobediência.
+
+Você deve fazer o mesmo com seus filhos, tendo uma conversa clara, onde define os limites sobre tarefas, escolha de amigos, ir a lugares e outros comportamentos que você quer que ele cumpra. Depois, descreva claramente as consequências do não cumprimento: perda de privilégios (saídas, eventos), bens (celular, skate, video game) e outras formas que você puder utilizar. A partir daí, você deixa que eles façam suas escolhas.
+
+Boas escolhas significam boas consequências. Escolhas ruins, significam consequências ruins. No momento em que eles fazem uma escolha ruim, você aplica as consequências, não importa o que ocorra.
+
+> _Nenhuma disciplina parece motivo de alegria no momento em que é recebida, mas sim motivo de tristeza. Mais tarde, no entanto, produz fruto de justiça e paz para aqueles que por ela foram exercitados._ (Hebreus 12:11)
+
+Esse versículo nos ensina qie a dor transforma o caráter. Não impeça seus filhos de sofrerem as consequências de seus atos e chegarem ao arrependimento.
+
+Estabeleça bons hábitos com seus filhos desde pequenos.
+
+
+## QUESTÕES PARA DISCUSSÃO
+
+1. Você tem derramado palavras de afirmação sobre seus filhos? **Percebe resultados positivos? O que te impede de fazer?**
+2. E quanto a estar presente nas ocasiões especiais? **Que mudanças você se propoẽ a fazer a partir de hoje?**
+3. Você estebelece com clareza os limites para seus filhos em casa, no mercado, na escola e com outras crianças? **Como pode melhorar isso?**
+4. Seus filhos sabem as consequências de não cumprir os limites claramente estabelecidos? **Você tem dificuldade em deixá-los passar por essas consequências?**
 
 # 9. LEGADO - A SUA MAIOR MISSÃO
+
+
 
 
 
